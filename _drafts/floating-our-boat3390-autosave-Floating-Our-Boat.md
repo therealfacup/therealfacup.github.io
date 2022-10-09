@@ -1,0 +1,36 @@
+---
+id: 7482
+title: 'Floating Our Boat'
+date: '2012-10-04T10:43:53+01:00'
+author: 'Simon Barnett'
+excerpt: 'Our week in football courtesy of Twitter | Follow Friday | What we enjoyed this week | keepingitpeel | What''s up next? | Who made us chuckle | Thanks to a few (actually more than a few) | Do have a mooch round the site'
+layout: revision
+guid: 'http://therealfacup.co.uk/2012/10/04/3390-autosave/'
+permalink: /2012/10/04/3390-autosave/
+---
+
+This week therealfacup bids farewell to [@itvfootball](http://twitter.com/itvfootball) as the ‘real’ bit of the FA Cup makes way for the popular bit! Thanks to the chaps there, especially [@segalmark](http://twitter.com/segalmark) and [@jamesappell](http://twitter.com/jamesappell) who let us [spout off](http://www.itv.com/sport/football/facup/) on a popular, mainstream website!! The fools. The ITV website has in recent times poked its head above the footballing parapet, built and set in stone by those clever rascals \[sarcasm\] at Match Of The Day, with content supplied by several noted bloggers (we don’t mean us – we mean the likes of Mark &amp; James themselves, [Zonal\_Marking ](http://twitter.com/zonal_marking)and [Mr Cammisola](http://twitter.com/rcammisola)) who have livened up what could be a very dry, Champs League-heavy site. It’s good to see – maybe one day it might spread to the TV version and they will choose the correct 1<sup>st</sup> Round ties and go for something a bit more esoteric? \[wink\] We’ll have a Real FA Cup Awards coming up soon (hopefully) as our last piece for the chaps this season.
+
+[![IMG_3389.JPG](http://lh6.ggpht.com/_3L4_Y2OBz2M/TIgaRvBbcSI/AAAAAAAAChw/YeopqMjerY8/IMG_3389.JPG?imgmax=200)](http://lh6.ggpht.com/_3L4_Y2OBz2M/TIgaRvBbcSI/AAAAAAAAChw/YeopqMjerY8/IMG_3389.JPG?imgmax=640)
+
+Good luck to the minnows left in the world’s greatest competition, many of whom we have enjoyed and supported in the past – special mentions here to … [@HendonFC ](http://twitter.com/hendonfc)who face a tricky trip to Chelmsford, [@gatesheadfc](http://twitter.com/gatesheadfc) who will be everyone’s favourite underdogs as they take on the sack-happy Notts County, [@harrowborofc ](http://twitter.com/harrowborofc)who we will probably be supporting against Chesterfield in the 1<sup>st</sup> Round proper and [@TiptonTown ](http://twitter.com/tiptontownfc)who face League 1’s Carlisle. Extra special thanks to [@CarshaltonAth ](http://twitter.com/carshaltonath)for their hospitality this week. Like so many non-league grounds and areas, we will return at some point as it was [a great day out](http://therealfacup.co.uk/2010/10/24/hope/). The same goes for [@CrayWanderers ](http://twitter.com/craywanderers), [@KingstonianFC ](http://twitter.com/kingstonianfc) and numerous others.
+
+Our favourite thing this week has clearly been the EFW Oktoberfest trip to eastern Europe. The whole bunch of 29 (or was it 30) of them have been prolific and so much about it is online. It’s difficult to take it all in but see [@DannyLast’s ](http://twitter.com/dannylast)site and [@theballisround](http://twitter.com/theballisround) as a starting point and branch out from there with the many links to photos, other folks match reports and recollections.
+
+Other enjoyable reads this week from [@rohanricketts](http://twitter.com/rohanricketts) via [@Sabotagetimes](http://twitter.com/sabotagetimes), who told us about how footballers view fans, especially some of the more moronic and obsessed elements – a good read, as is the fan’s response piece a day later. [@twoht](http://twitter.com/twoht) [wrote the piece](http://www.twohundredpercent.net/?p=9636) we wanted to about Southampton’s disgraceful, condescending and needless ‘attack’ on Shrewsbury for wanting higher ticket prices. Any kudos Southampton could have gained with this (slightly transparent) gesture was lost in the way they took the moral high ground. Yes, irony there. And Shrewsbury deserve a slapped wrist for trying to diddle their fans out of reasonably priced match tickets. Debacle.
+
+[The72](http://twitter.com/the72football) blog gave us a glimpse of [cult hero Lee Trundle](http://theseventytwo.com/?p=471), [@LesRosbifs](http://twitter.com/lesrosbifs) piqued our interest as ever and [@huddohudson](http://twitter.com/huddohudson) returned from his own EFW to bring more of our type of stuff, by visiting just the sort of [north east footy gaff](http://ganninaway.blogspot.com/) we go to down south. Great photos too.
+
+[![IMG_1985.JPG](http://lh3.ggpht.com/_3L4_Y2OBz2M/S6lQiWfAPKI/AAAAAAAACBU/m7niK2drIfU/IMG_1985.JPG?imgmax=200)](http://lh3.ggpht.com/_3L4_Y2OBz2M/S6lQiWfAPKI/AAAAAAAACBU/m7niK2drIfU/IMG_1985.JPG?imgmax=640)
+
+In our ears this week, as every week, we’ve had [@FootballRamble](http://twitter.com/footballramble) [@FootballPubcast](http://twitter.com/footballpubcast) [@twofootedtackle](http://twitter.com/twofootedtackle) [@nonleagueshow](http://twitter.com/nonleagueshow) and [@threeupfront](http://twitter.com/threeupfront) But also we’ve been keepingitpeel with [@FootieAndMusic](http://twitter.com/footieandmusic) who inspired me (Damon) in particular to revisit some musical ground I haven’t walked on for a while. Even my iPod joined in with a glorious shuffling sequence of Pop Will Eat Itself, The Fall, New Order, Inspirals …
+
+We’d like to give a big warming bowl of realfacup hotpot to [@GrahamYapp](http://twitter.com/grahamyapp), who made the trip we couldn’t and reported on [@SheffieldFC](http://twitter.com/sheffieldfc), and to [@footysphere](http://twitter.com/footysphere) who are constantly nice to us. Both should be followed in their own right, the former for his great blog and the latter for compiling good stuff to read so we don’t have to!
+
+Other folks we’ve enjoyed this busy week:
+
+Facts = [@Busfield](http://twitter.com/busfield) Wise words = [@hartch](http://twitter.com/hartch) [@garyalexander](http://twitter.com/garyalexander) [@nickames82](http://twitter.com/nickames82) [@nln24](http://twitter.com/nln24) [@sidlowe](http://twitter.com/sidlowe) [@Zonal\_Marking](http://twitter.com/zonal_marking) [@TheMotormen](http://twitter.com/themotormen) Giggles (And/Or wise words) = [@beathefirstman](http://twitter.com/beatthefirstman) [@runofplay](http://twitter.com/runofplay) [@obscurefootball](http://twitter.com/obscurefootball) [@jamiecutteridge](http://twitter.com/jamiecutteridge) [@9men](http://twitter.com/9men) [@footballutd](http://twitter.com/footballutd) [@matchoftheda](http://twitter.com/matchoftheda) [@ThoseFeet](http://twitter.com/thosefeet) [@gavinbarber](http://twitter.com/gavinbarber) [@NarrowTheAngle](http://twitter.com/narrowtheangle) [@thecoldend](http://twitter.com/thecoldend) Amusing Videos = [@RushallOlympic](http://twitter.com/rushallolympic) and our favourite footballer [@mattyjlawrence](http://twitter.com/mattyjlawrence) for getting me to listen to a new album. He doesn’t know this but thanks.
+
+And with that we’ll toddle off to another weekend of solitude having been reminded of the fine words of Sarah Cracknell on ‘Heart Failed’
+
+**“Sold the ground to the plc, moved the club out to Newbury, sod the fans and their families, heart failed in the back of the taxi”**

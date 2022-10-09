@@ -1,0 +1,75 @@
+---
+id: 7420
+title: 'I heard a rumour &#8230;'
+date: '2014-07-29T19:09:30+01:00'
+author: 'Damon Threadgold'
+excerpt: 'A short paean to those players that make you go "oooh" - more specifically to ex-Dulwich and now Peterborough United''s new young Turk.'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=7420'
+permalink: /2014/07/29/i-heard-a-rumour/
+networkpub_postmessage:
+    - ''
+networkpub_twitterhandle:
+    - ''
+networkpub_twitterhash:
+    - ''
+post_image:
+    - 'https://lh6.googleusercontent.com/-ddsQtmoq4u0/U9fg0XugihI/AAAAAAAAEfU/nQG4L7jin-U/w765-h510-no/IMG_0348_2.JPG'
+snap_isAutoPosted:
+    - '1'
+snap_MYURL:
+    - ''
+snapEdIT:
+    - '1'
+snapFB:
+    - 's:469:"a:1:{i:0;a:12:{s:4:"doFB";s:1:"1";s:8:"postType";s:1:"I";s:10:"AttachPost";s:1:"2";s:10:"SNAPformat";s:127:"A short paean to those players that make you go "oooh" and, more specifically, a farewell to Dulwich Hamlet''s masterly Turk ...";s:9:"isAutoImg";s:1:"A";s:8:"imgToUse";s:0:"";s:9:"isAutoURL";s:1:"A";s:8:"urlToUse";s:0:"";s:11:"isPrePosted";s:1:"1";s:8:"isPosted";s:1:"1";s:4:"pgID";s:30:"156412412358_10152597865332359";s:5:"pDate";s:19:"2014-07-29 18:10:07";}}";'
+snapTW:
+    - 's:384:"a:1:{i:0;a:9:{s:4:"doTW";s:1:"1";s:10:"SNAPformat";s:127:"A short paean to those players that make you go "oooh" and, more specifically, a farewell to Dulwich Hamlet''s masterly Turk ...";s:8:"attchImg";s:1:"0";s:9:"isAutoImg";s:1:"A";s:8:"imgToUse";s:0:"";s:11:"isPrePosted";s:1:"1";s:8:"isPosted";s:1:"1";s:4:"pgID";s:18:"494183102605172736";s:5:"pDate";s:19:"2014-07-29 18:10:07";}}";'
+categories:
+    - Feature
+    - Ryman
+tags:
+    - 'Dulwich Hamlet'
+    - 'Erhun Oztumer'
+    - 'Gavin Rose'
+    - joy
+    - Neymar
+    - Peterborough
+    - Rabble.Dultras
+---
+
+It’s very rare that you go to a football match and, for the first time, set eyes upon an unknown who makes you smile and feel grateful you’re there. A few years back we visited Dulwich Hamlet and saw [Sanchez Ming](http://therealfacup.co.uk/2009/08/30/ming-the-merciful/) light up a game with his pace and directness. Around about the same time we saw WEST HAM ACADEMY OF FOOTBALL’s classy [Roger Stanislas](http://therealfacup.co.uk/2008/11/29/20082009-2nd-round-proper/) make his loan debut for Southend, during which his well justified self-confidence allowed him to grab the ball off more senior players at a 25 yard free kick, plonk the ball down, take a few steps back and casually curl the ball into the corner.
+
+This phenomenon happens occasionally but the heights you witness are rarely repeated and, if they are, it is fleetingly, infrequently and rarely consistently. It is also relative, many of the players we’ve seen we’ve seen just once and at a level where they are unlikely to grace the World stage or be considered great players. But, in context, over the last six years of The Real FA Cup [Ryan Ashe](http://youtu.be/Gx5tAqCIwrk?t=2m28s) (good goal this) of Wealdstone, ‘Scholesy’ for Chessington &amp; Hook, Arundel’s Rob Grove, Enfield’s Marcel Jones, Swindon’s Simon Ferry, Cambridge’s Chris Holroyd and even Danny Kedwell all looked brilliant the first time we saw them!
+
+But, two seasons ago it happened twice in the space of a few weeks. At Champion Hill I got my first glimpse of the returning Ellis Green and he seemed a completely different player to the one I’d apparently seen (but not remembered) a couple of years before hand. Like Sanchez he was very direct, not prone to tracking back, often played on the ‘wrong’ wing (he’s quite right footed and was usually on the left) cutting inside to great effect.
+
+We liked him so much we sponsored him for the season. He had a great season as supplier and scorer of goals and as tormentor, as outlet and as pressure applier – and occasionally as nailed-on booking magnet when retaliating to unsubtle hacks.
+
+If it had been left at that we would have been ecstatic but a few weeks after first clapping eyes on the returner, as a game was kicking off, South London treasure [Trevor Bastard](https://twitter.com/OhMyDecades) told us of a player who’d impressed on his debut the previous weekend. I paraphrase Mr Bastard but his “you won’t have too look hard, he’s the tiny good one” was prescient and accurate. I wouldn’t miss him if I had eyes.
+
+It didn’t take long. Straight from the kick off an unfamiliar, diminutive midfielder was burning his class on our retinas. As the coach [Hugo Langton](https://twitter.com/baldy1974) said to us on Twitter at the time, he’s “a prospect, Gavin Rose will look after him, he’s at the right place”. He was not wrong on any of those three things.
+
+It’s not easy to translate into words the sensation that certain players transfer to crowds when they are in the middle of a mazy run, when they time a pass to perfection, when they see a space you hadn’t, when they rise to meet a tempting cross or when they put a ball down at a free kick 25 yards out and then send it curling over the wall into the top, or indeed bottom, corner. When you know they can do this regularly you get the same feeling simply when they receive the ball, you know something special might be about to happen even if that ‘something’ is still unknown, still only forming in the player’s head.
+
+I shall not try to describe this sensation, I’m not a wordsmith, but you know it anyway, you’ve had these players at your club. You warm to these players, you feel protective of them, you feel safer when they’re around (hello all of Brazil when Neymar got injured in the World Cup), you want to pay money to watch them, you anticipate games more acutely and, perhaps most sadly of all, you mourn their loss. For, with good players, even ones in very good teams (like Dulwich) they are almost always better than your team, more accurately better than your team’s position in football’s hierarchy.
+
+Wrongly, talented players are often begrudged this inevitable vertical movement (as if all fans would push away a lucrative job move and promotion to remain loyal to their employer) but, occasionally, it is so obvious that a player will move upwards and so grateful are you for what you have seen, you applaud the player bettering himself and not only wish him godspeed but hope he goes further.
+
+Thus, to a man, the Dulwich Hamlet faithful, the Rabble, the Dultras, the occasionals, the nouveaus, the hipsters, the management and the young and old alike bade farewell to a man they will never forget and who they hope will give joy to another set of fans who, in turn, will mourn and celebrate his passing on to even greater things.
+
+Erhun Oztumer is the eleventy-twelftieth Dulwich player to move into professional football in the last few years but he is the one who has given most joy (sorry to the whole squad over the last three years, all immense). I doubt I’m alone in hoping the Peterborough United management and fans give him his chance and they get to see the things we have.
+
+Being a non-league player many of Erhun’s best moments were of a moment, unrecorded and unSkyperbolised, remaining locked in the minds of Hamlet and opposition fans alike, put away for safe-keeping and exaggeration, to be dusted off later in pub eulogies.
+
+If you don’t know him, here’s how Dulwich Hamlet fans will remember him ….
+
+<iframe allowfullscreen="" frameborder="0" height="338" src="http://www.youtube.com/embed/4k9psjcNVHA?feature=oembed" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="338" src="http://www.youtube.com/embed/pBqJEAboW24?feature=oembed" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="338" src="http://www.youtube.com/embed/HEPrTHtOB-E?feature=oembed" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="338" src="http://www.youtube.com/embed/r2a3LaDYIXM?start=130&feature=oembed" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="450" src="http://www.youtube.com/embed/w9h6oQz_JUA?feature=oembed&start=160" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="450" src="http://www.youtube.com/embed/w9h6oQz_JUA?start=283&feature=oembed" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="450" src="http://www.youtube.com/embed/w9h6oQz_JUA?feature=oembed&start=825" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="338" src="http://www.youtube.com/embed/0llYFFc4oWU?feature=oembed" width="600"></iframe>  
+<iframe allowfullscreen="" frameborder="0" height="338" src="http://www.youtube.com/embed/r0jSCwQwTU8?start=15&feature=oembed" width="600"></iframe>

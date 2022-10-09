@@ -1,0 +1,51 @@
+---
+id: 5135
+title: Bedraggled
+date: '2011-08-27T10:09:08+01:00'
+author: 'Damon Threadgold'
+excerpt: 'Imagine standing in the shower for twenty minutes with all your clothes on. Then imagine going to stand next to a football pitch in those clothes ... hello summer! Colliers 1-1 Chessington'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=5135'
+permalink: /2011/08/27/bedraggled/
+categories:
+    - 2011-12
+    - 'Extra Preliminary Round'
+    - 'FA Cup'
+    - 'Match Report'
+tags:
+    - 'Chessington &amp; Hook United'
+    - 'Colliers Wood United'
+    - Crouchy
+    - 'FA Cup'
+    - Scholesy
+    - socrates
+---
+
+**COLLIERS WOOD UNITED 1 – 1 CHESSINGTON &amp; HOOK UNITED  
+FA Cup Extra Preliminary Round 2011/12**  \[pe2-image src=”http://lh5.ggpht.com/-VPkEZs2Pt1c/Ut5grmoo4sI/AAAAAAAAEJQ/cMi8HDqaAFM/s144-o/1.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316458161496770″ caption=”Early doors, everyone’s damp, lino included.” type=”image” alt=”1.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \]
+
+<span style="line-height: 1.5em;">Imagine standing in the shower for twenty minutes with all your clothes on. Then imagine going to stand next to a football pitch in those clothes for an hour as the sun comes out and gradually dries you off. Both annoying and slightly erotic. I mean heroic. </span>**Heroic**<span style="line-height: 1.5em;">. That’s what happened, give or take some factual accuracy transposing showers with torrential rain, on the way to Colliers Wood Utd against Chessington &amp; Hook on Saturday. After two hours in the Hand In Hand in Wimbledon with a crack team from the football bloggerati, we were oiled enough not to worry too much but, even so, a summer afternoon it was not.</span>
+
+\[pe2-image src=”http://lh4.ggpht.com/-le81kMKO1zw/Ut5gr8P6sUI/AAAAAAAAEJY/odpwUaAMqdo/s144-o/2.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316463963386178″ caption=”The oldest swingers in town.” type=”image” alt=”2.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] But then it was!
+
+On Friday night we’d seen what might prove to be the way forward for non/lower league football with the narrowcasting of one of the first of this year’s FA Cup games live on Facebook to an intrigued crowd of 27,000 viewers. The local anticipation of the game drew in a record 1149 people to Ascot United’s ground while just 19 hours later in South West London we were back to basics and a meagre turn out of no more than 50. In fact, once club dignitaries and volunteers are excluded I do wonder if there were more than 30 paying guests.
+
+The reasons for being on the fringes of the suburban idyll of Wimbledon Village were twofold. Firstly, it was an FA Cup game and that’s what we do. Secondly, it had been hand selected as the opening ‘Socrates’ of the season. The hot topic, early doors, was the aforementioned Facebook Event. Those enthused were, [me](http://twitter.com/#%21/damon_th), Terry Duffelen of [Socrates](http://twitter.com/#%21/SocratesMeetUp), [Futbl Fairground](http://www.footballfairground.com/) and [Bundesbag](http://twitter.com/#%21/bundesbag) fame, [Gary Andrews](http://twitter.com/#%21/gafootbl) from [Two Footed Tackle](http://twitter.com/#%21/twofootedtackle), [‘inveterate doodler’](http://matthewcravenillustration.com/) [Matt Craven](http://twitter.com/#%21/matthewcr), Rob from [Two Unfortunates](http://twitter.com/#%21/twounfortunates) and, latterly, [Ryan Keaney](http://twitter.com/#%21/smallramblings) from the [Football Project](http://twitter.com/#%21/theftblproject) and the other 50% of us, [Simon](http://twitter.com/#%21/acresofspace).
+
+\[pe2-image src=”http://lh4.ggpht.com/-940j\_vbtG9o/Ut5gsyCeTuI/AAAAAAAAEJs/aambRqxhkdg/s144-o/3.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316478402514658″ caption=”The keeper of goal, lurking in his natural habitat.” type=”image” alt=”3.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] That was some hyper, hyper linking, in fact that is why this report is so late. Actually, that’s a lie, it was down to drink, a day at the Oval watching England seal no.1 spot, a night at Champion Hill, actually having to do real work and then it all kind of slipped by the wayside …
+
+Also, here’s a little test of a new layout for match-reports and some vague recollections of the game … what do you reckon? I digress, partly because, from here on in, events of the day get a little fuzzy – and that sentence was written two days after the game so what chance I have in early November, I have no idea. The braincells don’t cope with drink like they used to. And for that reason, my recollections veer off into the esoteric and ephemeral bits of the game.
+
+\[pe2-image src=”http://lh4.ggpht.com/-SUYDP1xMQ14/Ut5gszqCbGI/AAAAAAAAEJo/jQpW4YS99hU/s144-o/4.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316478836894818″ caption=”Pavillion.” type=”image” alt=”4.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] Chessington &amp; Hook, without intending to be unkind, had some BIG lads. Big, as in hearty, sturdy, rather than big as in Crouchy. One of the linos took sturdy to a whole new level, Kenny Legg nailed that level with his ‘non league official’ assessment [here](http://adventuresintinpot.blogspot.com/2011/08/flowers-and-football-tops.html). Again, not intending to be unkind, these guys did a whole lot more excercise than I’ve done in the last few months.
+
+\[pe2-image src=”http://lh6.ggpht.com/-3wdkn0iCoG0/Ut5gs\_HE1GI/AAAAAAAAEJw/90px5LEuUfo/s144-o/5.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316481911477346″ caption=”The other lino had lunched well, on several occasions, over many years.” type=”image” alt=”5.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] Another thing. I got a bit sentimental about the 70+ year old couple sitting among us wet rags while getting all excited about the game and their team. Not for them the impersonal concrete monoliths of the Premier League, it would seem, more the bucolic wide open space of the Wibbandune Sports Ground, with it’s vast swathe of pitches, proximity to Wimbledon Common, the camaraderie of a few dozen people trying to make young lads better footballers.
+
+\[pe2-image src=”http://lh6.ggpht.com/-yCd6QZryyZ0/Ut5gt1b4xRI/AAAAAAAAEKA/DmPf4z0E0T0/s144-o/6.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316496494282002″ caption=”Wood in front 1-0.” type=”image” alt=”6.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] All of us present ‘support’ bigger teams but I wonder if any of us will see a better dotage than this type of football retirement? This, or the crumbling edifices of Selhurst Park or St James Park (South), the steely confusion of Portman Road, the shiny other worldliness of Ashburton Grove or the benevolent fiefdom of Madejski? Maybe I should have asked?
+
+\[pe2-image src=”http://lh6.ggpht.com/-kRa\_h435Dag/Ut5gt6wk7zI/AAAAAAAAEKE/ZKBgTiJ0GTQ/s144-o/7.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316497923239730″ caption=”They called him ‘Scholesy’, he’d eaten a whole Paul!” type=”image” alt=”7.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] Certainly the game wasn’t short of the kind of incident, quality or excitement that might keep one returning. The soggy start wasn’t conducive to long passing so a more measured, short game was, largely, the chosen weapon. Colliers Wood were the side to first manager it, testing the Chessington keeper on several occasions. They didn’t find a way through and as the half wore on Chessington came into the game, with sporadic counter-attacks, and took the lead.
+
+\[pe2-image src=”http://lh5.ggpht.com/-24dIETAj1M0/Ut5gt99fXFI/AAAAAAAAEKI/9r9WbGeehm8/s144-o/8.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316498782706770″ caption=”And the lino ate ‘Scholesy’.” type=”image” alt=”8.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] At half time Colliers Wood’s possession should really have had more to show for it, Chessington &amp; Hook, playing more on the break, could arguably also have had more than the one goal lead. An engaging game, despite being soaked to the skin.
+
+\[pe2-image src=”http://lh4.ggpht.com/-xNXmLsu2JfQ/Ut5guloLv6I/AAAAAAAAEKQ/QjB81VRjtEk/s144-o/9.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316509430759330″ caption=”Sorry, ‘Scholesy’, another photo, but, despite the frame, he ran himself into the ground.” type=”image” alt=”9.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] The bar is a homely place. The usual suspects on draught, no ale at all, and Guinness by the can. “Six Guinness please”. A decent spread of ham based sandwiches on offer for not many £s. And confect, of course. The second half saw bright sunshine, two sendings off and a late equalising penalty, which brought about one of the sendings off. More or less dry, the game ended 1-1, which was probably fair and both sides played some nice football in, initially, tricky conditions.
+
+\[pe2-image src=”http://lh6.ggpht.com/-Kp4Y\_18ktLA/Ut5gr0IEffI/AAAAAAAAEJU/tPaKUhA\_-Yw/s144-o/10.jpg” href=”https://picasaweb.google.com/117823912047779151886/Bedraggled#5971316461782990322″ caption=””Well, yeah the Focus is a reliable little run-around but, for me, you can’t beat the Astra.”” type=”image” alt=”10.jpg” pe2\_single\_image\_size=”w640″ pe2\_img\_align=”center” \] 

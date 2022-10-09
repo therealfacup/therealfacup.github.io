@@ -1,0 +1,32 @@
+---
+id: 7104
+title: 'Straight Outta Compton (Park)'
+date: '2011-02-11T10:42:00+00:00'
+author: 'Simon Barnett'
+excerpt: 'therealfacup is taken on a new diversion away from the FA Cup. David Bevan from Football League Blog ''the72'' visits a small village just outside Northampton to check out one of the hottest and newest phoenix clubs, Kings Lynn Town.'
+layout: revision
+guid: 'http://therealfacup.co.uk/2011/02/11/4222-revision/'
+permalink: /2011/02/11/4222-revision/
+---
+
+[David Bevan](http://theseventytwo.com/football-league/championship/2011/01/30/the-wacky-races-at-the-top-of-the-championship/), from Football League Stalwarts [the72](http://theseventytwo.com/), takes himself off on a tangential busman’s holiday to the United Counties Premier League.
+
+Grass. As far as the eye can see. Fields and fields of the stuff. So much green. Blades by the hundreds of thousands. But he wants this precise patch of it in which to park his electric blue Vauxhall. And so he waits, engine running, headlights dazzling, while my disabled flatmate extricates himself from my car and climbs into his wheelchair, safely clear of the precious rectangle of turf that this chap has already mentally allocated to himself. You could have comfortably accommodated the Spanish Armada in the space available. But no.
+
+Welcome to Cogenhoe (pronounced “cook-know”), a small village just outside Northampton – which resembles a sprawling metropolis from the brow of the hill. At night? All lit up like that? It almost looks exciting. The majority of the town’s inhabitants are safely tucked up enjoying the warmth of their homes. Not me or my flatmate Haydon. We fancied a bit of United Counties League Premier Division action. Not Division One. Oh no. We wanted the high life. Premier. Quality guaranteed – and for a fiver each, too.
+
+The visitors were King’s Lynn Town. Recently reformed following the dissolution of the club in its previous guise for financial reasons, the Linnets are far too big for this division. Their travelling hordes are testament to that, although it must be noted that King’s Lynn appear to be followed on the road by a disproportionately large number of elderly supporters? You know the age-old goad about poorly-supported clubs and their travelling fans who are said to arrive on a skateboard or some such other limited mode of transport? I wouldn’t have been surprised to have seen a veritable phalanx of mobility scooters dotted around the sidestreets of Cogenhoe during this game. It was like Daniel O’Donnell was in town. A group of octogenarians with matching Linnets hats and scarves (bang on trend, as I believe “they” say) were, as a collective, quickly dubbed “Saga Holidays” by one wag. Okay, it was me.
+
+Cogenhoe United on a Tuesday night in February seems an unlikely environment for WAGs of the capitalised kind but, sure enough, there appeared to be an assortment of female partners among the huddled not-quite masses. I’m no Andy Gray when it comes to women and football, so perhaps they were just disinterested Cogenhoe fans with particularly distracting mobile phones and world-weary expressions perfected during a whole childhood following The Cooks. It seems unlikely.
+
+<div>There was a remarkable opening to the game, which sets the tempo for the evening. Straight from the kickoff, three King’s Lynn players simultaneously attempted to dribble the ball upfield, the outer two acting like American Football blockers. It didn’t work, sadly, but at least it was something a bit different and looked like the sort of thing that you might have seen in the earliest days of association football. That is not to suggest that King’s Lynn are backward in their footballing philosophy. The visitors played some very bright stuff, prompted by a busy little midfielder who probably played for Norwich’s youth team once upon a time before being discarded for being too small.
+
+The referee, who looked like Howard Webb and acted like Howard Webb, will not be refereeing a World Cup Final any time soon on this evidence. Ooh, he didn’t like dissent one bit. At times, the match veered away from football and seemed more akin to an ITV real-life police show in which middle-aged coppers lecture bored teenagers at great length. The Howard Webb comparison certainly sounds right now, doesn’t it? He even did the actions. Perhaps he practises in front of a full-length bedroom mirror. Symmetrical diagonal karate chops all over the shop. I’m Clint Eastwood around here and you will respect my authority.
+
+There was plenty of injury time at the end of the first half. No actual injuries, no substitutions and just the one goal (scored by King’s Lynn and sparking minimal celebrations), but an awful lot of talking between your man in black and the assortment of mobile haircuts populating the midfield area. Saga Holidays quickly tired of this approach, regularly barking phrases last heard during the inter-war period, as it dawned on them that a midweek trip to Cogenhoe would soon effectively become a two-day expedition. If they got back before midnight then I can only imagine that mobility scooters are quicker than I thought. Saga Holidays also became increasingly disgruntled at the plunging temperature, which was beginning to grate my goat too in all honesty.
+
+After about an hour of playing like a non-league Stoke, every bit as pretty as that prospect sounds, Cogenhoe began to play a bit and equalised when Matt Gearing, a recent capture from Rugby Town, crashed a long-range drive straight at the King’s Lynn keeper, who promptly chucked it into the net. The Linnets, spurred on by their travelling support, then put a succession of free headers off target from inside the six-yard box, while Cogenhoe’s mouthy number ten managed to lift the ball over the bar from three yards out with the keeper grounded. It was perhaps the worst miss I have ever seen with my own eyes. And I have seen Elvis Hammond on numerous occasions.
+
+King’s Lynn became frantic towards the final whistle as news filtered through that they were failing to take full advantage of promotion rivals St Neots Town’s 1-1 draw at St Ives, but to no avail. In truth, it was a quite incredible result for Cogenhoe given the number of chances created by their opponents. Nevertheless, King’s Lynn will have to be far more ruthless in the future if they are to pip St Neots and Newport Pagnell to the title. If they do manage it, I can’t wait for the victory parade. Do mobility scooters have horns?
+
+</div>

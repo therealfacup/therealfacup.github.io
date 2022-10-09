@@ -1,0 +1,27 @@
+---
+id: 7315
+title: 'Clapton 2 &#8211; 3 Bristol Rovers'
+date: '2012-08-07T22:40:29+01:00'
+author: 'Lee Thurston'
+excerpt: 'Bristol Rovers'' narrow squeak past non league Clapton. Ryan Wilmers'' opening goal gets a digital rendering by @leedeetee!'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=7315'
+permalink: /2012/08/07/clapton-2-3-bristol-rovers/
+networkpub_postmessage:
+    - ''
+networkpub_twitterhandle:
+    - ''
+networkpub_twitterhash:
+    - ''
+image: /wp-content/uploads/2012/08/1-2-200x100.jpg
+categories:
+    - 'Fake FA Cup'
+tags:
+    - 'Bristol Rovers'
+    - Clapton
+    - 'Ryan Wilmers'
+---
+
+[![](http://therealfacup.co.uk/wp-content/uploads/2012/08/1-2.jpg "-1-2")](http://therealfacup.co.uk/2012/08/07/clapton-2-3-bristol-rovers/1-2/)
+
+We have no idea how he did it but this digital 3D model of Ryan Wilmers lining up his shot at the actual Clapton ground was beautifully created by [@leedeetee](https://twitter.com/leedeetee). Follow his Leeds-centric blog [here.](http://www.leedeetee.co.uk/)

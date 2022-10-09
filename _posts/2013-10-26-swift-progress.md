@@ -1,0 +1,91 @@
+---
+id: 8474
+title: 'Swift Progress'
+date: '2013-10-26T11:11:19+01:00'
+author: 'Glen Wilson'
+excerpt: 'Glory days returning for Heybridge Swifts? Glen Wilson at Hayes Lane for a rare cupset!'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=8474'
+permalink: /2013/10/26/swift-progress/
+networkpub_postmessage:
+    - ''
+networkpub_postsummary:
+    - ''
+networkpub_twitterhandle:
+    - ''
+networkpub_twitterhash:
+    - ''
+networkpub_ogtype_facebook:
+    - ''
+networkpub_post_image_video:
+    - ''
+post_image:
+    - 'https://lh3.googleusercontent.com/-oNcL-0tz2-k/UmuUxDIgrfI/AAAAAAAAD6k/NO450bOQLiA/w777-h517-no/Uneven+terraces.JPG'
+categories:
+    - 2013-14
+    - '3rd Qualifying Round'
+    - 'FA Cup'
+    - 'Match Report'
+tags:
+    - Bromley
+    - 'dog barking at the ball'
+    - 'FA Cup'
+    - 'Heybridge Swifts'
+    - Nigeria
+    - ponies
+    - tannoy
+---
+
+**Bromley 1-2 Heybridge Swifts**  
+ **FA Cup 3rd Qualifying Round 2013/14, Attendance: 797**
+
+Bromley, depending on what you’re looking to prove, sits in Kent or Greater London. Either way, county town or commuterville, its streets do not scream Cup giantkilling. It’s just not grey enough. Walk from Bromley South station and you’re in suburbia before you realise it; trimmed hedgerows and wood panel fences, detached houses with mock-tudor frontages, silver saloons and not an emulsion numbered wheelie-bin in sight.
+
+\[pe2-image src=”http://lh5.ggpht.com/-\_sCpFQAH6ZE/UmuNZPIlkPI/AAAAAAAAD5Q/U6OoHNwRZos/s144-o/Community.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938995998316925170″ caption=”” type=”image” alt=”Community” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] On Hayes Lane, where Bromley have played for much of their existence, men abandon cars decked with Crystal Palace mini-kits and Charlton Athletic window stickers to trudge up the long driveway to the ground. Bowls lawn to the left, grazing ponies to the right, only the crackle of a tannoy ahead and two lads, Bromley scarves twirled round their wrist, suggest you are actually on course for a football match.
+
+Beyond the turnstile sits a neat square shed come programme hut. £2.50 the artistry of page filling against all odds, the synopsis of which being; ‘use ludicrously sized font’. A page on the day’s birthdays contains a small picture and just 40 words written in type so large the sentiment would be better placed trailing from the back of a biplane. They’ve sold out not long after half two. I consider selling mine back to them.
+
+\[pe2-image src=”http://lh4.ggpht.com/-H0NayfXsGtc/UmuNbkCmk5I/AAAAAAAAD5w/GORP17N0oX0/s144-o/Programmes%252520%252528until%252520two%252520thirty%252529.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996038288708498″ caption=”Programmes (until two thirty)” type=”image” alt=”Programmes (until two thirty)” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] Programme gripes aside Hayes Lane is a great non-league ground, plonked dead centre in a Venn diagram of ‘proudly kept’ and ‘tumbledown’. A significant bank of ancient crooked terracing extends along the far touchline and round behind one goal where a shallow corregated canopy offers cover at the back. A similar structure at the far end protects the back three rows of glorious wooden bench seating. The word quaint is tempting, but way back in 1949 more than 10,000 people crammed in here for a game against Nigeria. Yes … Nigeria.
+
+There are much fewer here today for the visit of Heybridge Swifts, a side two divisions beneath the hosts. Its ten years since Swifts last reached the first round of the FA Cup, beaten at home by Bristol City (That was City’s ‘busting chops’ season, as the big time bastards wiped the Swifts from their studs before moving on to crush the dreams of Harrrogate Railway Athletic in the next round, the unromantic gets). Bromley are currently second in the Conference South, eyeing promotion to the fifth tier, meaning that on paper the chances of Swifts emulating the class of 2002 look slim.
+
+\[pe2-image src=”http://lh4.ggpht.com/-k6YGojYLGuQ/UmuNdfKPzyI/AAAAAAAAD6A/HDXGwHOIafA/s144-o/Up%252520for%252520the%252520Cup.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996071338331938″ caption=”Up for the Cup” type=”image” alt=”Up for the Cup” pe2\_single\_video\_size\_format=”P” pe2\_single\_video\_size=”w350″ pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] But this is the FA Cup, where anything can happen and the atmosphere is already electric\*. (\*Assuming that your definition of electric is a dozen kids in Arsenal and Chelsea shirts dancing to Will.I.Am on the section of benches deemed the Family Enclosure). The referee’s whistle for kick-off is treated as a last orders bell for the club house and the attendance swells significantly as a continuous stream of supporters file out in a line that doesn’t end until we’re more than five minutes in. “It’s crowded today, I don’t like it” says one home fan as he nit-picks over a place to stand on a open terrace that is still boasting a healthy concrete to supporter ratio of at least 4:1.
+
+Evenly matched in the opening exchanges both sides force corners, though Bromley’s neatly worked set piece, fed in low to the feet of Bradley Goldberg causes more concern, blocked by a prone body on the edge of the six-yard box. I’ve seen Goldberg in action before whilst on Real FA Cup duty – he was part of the Hastings team battling in the frozen Harrogate mud last season – though seemingly briefly possessed by the spirit of a 1950s scout I recognise his gait before his name. Low and stuttering when on the ball, he looks down more than up, jinking around any legs in unfamiliar socks which happen to cross his eyeline. It’s not a foolproof style, and he twice deftly drops a shoulder to beat a confused referee.
+
+\[pe2-image src=”http://lh5.ggpht.com/-OU1oqDQ4KuU/UmuNdWU4iPI/AAAAAAAAD6E/08lBV1eU2zA/s144-o/Uneven%252520terraces.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996068967024882″ caption=”Uneven terraces” type=”image” alt=”Uneven terraces” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] Both sides look to move the ball; Bromley do it more convincingly but are too intricate around the edge of the Heybridge area, whilst Swifts are squeezed into playing only on halfway, before a lofted ball forward, each one of which is greeted by a collective yell of “Lino!” by the Bromley back line. There’s still space out there though as inadvertently demonstrated by Aaron Greene who falls over his own feet in possession, yet is still able to get up and be comfortably first to his own loose ball.
+
+In each passing minute that the game remains goalless Swifts gain in confidence and begin to encroach on the Bromley area; most notably as a good cross from Reece Morgan finds Greene at the far post, but the winger can’t keep his shot down and behind a Heybridge banner hung on the hoardings a dozen pairs of hands are clasped to heads.
+
+\[pe2-image src=”http://lh6.ggpht.com/-CeKbAWqya9I/UmuNYIJysyI/AAAAAAAAD5A/73yjsrpQlxI/s144-o/Bromley%252520%252528goldberg%252529%252520ignoring%252520stadium%252520protocol%252520whilst%252520on%252520the%252520attack.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938995979263062818″ caption=”Bromley (goldberg) ignoring stadium protocol whilst on the attack” type=”image” alt=”Bromley (goldberg) ignoring stadium protocol whilst on the attack” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] A Heybridge clearance disappears into the car-park to polite admonishment from the home supporters – “That was a bit unnecessary!” “Mind my car!” –and as I move behind the goal a pair of visiting Scandinavian groundhoppers pass me to ask some regulars the name of the opposition. They are met by six successive blank faces before a steward checks his paperwork to answer them. Meanwhile the team they do know are closing in on an opening goal. A deep cross evades Goldberg, but is almost turned in by a Swifts defender, then from the resultant corner a big cheer as the Main Stand heralds what it believes is a goal, but is actually the ball nestling outside of the other post.
+
+Chance gone, the Swifts swoop and, as Jack Holland slices a clearance so wildly there’s a chance the backspin will screw the ball into the turf, they gain a corner. Kevin Dobinson’s right footed delivery clears the six yard box, but is kept alive by Morgan and when he chips it back into the mix it is Dobinson who arrives to meet it and squeeze a volley beneath Lewis Carey to give the underdogs the lead.
+
+\[pe2-image src=”http://lh6.ggpht.com/-KdfZqRMBfV4/UmuNZivwtcI/AAAAAAAAD5Y/77g0xyEFvds/s144-o/Heybridge%252520go%2525201-0%252520up.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996003581507010″ caption=”Heybridge go 1-0 up” type=”image” alt=”Heybridge go 1-0 up” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] The goal jump starts the game and for the next fifteen minutes it shuttles back and forth like a time-lapse tide. Bromley force a corner, but within an instant Swifts are down the other end where TJ Amass, inadvertently blocks a team-mates shot whilst lying prone in the area. Corner to Bromley. Attack for Swifts. It’s playing out like a basketball match, as only a decent save by Carey stops Newson from doubling the lead.
+
+Swifts’ confidence is serving them well on the counter and as Bromley’s short corner routine is thwarted again, they break decisively. A lovely angled through ball into the path of Greene puts him mano-a-mano with a Bromley defender. Greene sends him the wrong way before driving a twenty-five yard shot into the top corner. Beneath me the travelling Heybridge support dance a circular jig, including one man on crutches. “Nearly as good as his dad!” yells one fan with a knowing wink as out on the field the Swifts players pile on top of Greene.
+
+\[pe2-image src=”http://lh5.ggpht.com/-VPwzN6X7P\_g/UmuNXvcvnaI/AAAAAAAAD48/OgUhA3dXgMk/s144-o/Brilliant%252520benched%252520stand.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938995972631666082″ caption=”Brilliant benched stand” type=”image” alt=”Brilliant benched stand” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] The joy is short-lived. Though we’re already edging into first-half time the deficit has soon been reduced. The impressive Ben Swallow skips up the left to earn his side a free-kick, and finally, at the twelfth attempt a set-piece pays off for the hosts; the initial deep cross headed against the bar by Swaine before Jacob Erskine bundles home the rebound. There’s barely time to start up again. “Oh now you bloody blow you clown,” yells a Swifts fan as the half-time whistle sounds.
+
+I join a burger van queue of old jokes and little movement. “Meat-free them burgers, well they were last season”.”He’s no gravy” “Order a coffee then it’s usually much the same”. The bumper FA Cup takings don’t seem to be offering any joy to the exasperated proprietor, and in between each order he swigs purposefully from a bottle of water as if he’s drinking to forget.
+
+\[pe2-image src=”http://lh5.ggpht.com/-OXptrzOzLiw/UmuNaA2Bp1I/AAAAAAAAD5g/6WDuBWjF94s/s144-o/Late%2525201st%252520half%252520pressure%252520from%252520Heybridge” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996011660846930″ caption=”Late 1st half pressure from Heybridge” type=”image” alt=”Late 1st half pressure from Heybridge.JPG” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] The second half gets underway but no-one seems to be paying much attention as Swifts win a corner in near silence. Nothing comes of the deadest of dead balls, and Heybridge won’t come as close to goal again throughout the second half. Instead Bromley are having all the play with the trickery of left-winger Swallow offering most of their attacking joy.
+
+From an free-kick there’s a loud shout for a home penalty from players and supporters, but the ball is blasted at the Swifts player from such close range and so quickly that it is hard to tell whether it hit his arm, or whether he was even in the area. Swifts are capable on the break, however when they have time to clear they just hump the ball into the greatest available expanse of grass rather than in the direction of team-mates. “Just keep the ball Heybridge!” yells a man behind the goal in frustration and desperation.
+
+\[pe2-image src=”http://lh6.ggpht.com/-3kUwn8ECjZk/UmuNcKJG8pI/AAAAAAAAD50/FapXXc4NhN8/s144-o/Same%252520old%252520spot.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996048516543122″ caption=”Same old spot” type=”image” alt=”Same old spot” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] Killing time between Bromley attacks I tick off boxes in the proverbial non-league Spotters Guide. Cigarette smoke drifting overhead, tick; dog barking at the ball, tick; man with transistor radio fixed to his ear, tick; cars parked inside the ground, tick. The only thing to plonk Hayes Lane in the present is the fog of warning signs dotted around the ground. ‘Don’t run’, ‘Do not go beyond this point’, ‘Uneven Terraces’, ‘Mind the Step’, ‘No Standing’… someone on the Bromley committee has been on a course. Inevitably as I stand after noting this I do so to the resounding thunk of skull on timber as I crack my head on a wooden pillar, the only thing in the ground I hadn’t been warned of.
+
+Bromley continue to pile on the pressure but can’t find a way through. Swifts’ second half possession must be hovering the 1% mark as Bromley continue to press. Goalkeeper Nick Eyres is out smartly to save at the feet of Amass. Another wave rolls forward, this time the ball is worked around the edge of the box for Golding, he looks destined to score, but he blazes his shot over the roof of the stand to a collective groan of realisation that this won’t be Bromley’s day.
+
+\[pe2-image src=”http://lh6.ggpht.com/-X7retpLBSU8/UmuNYDReYRI/AAAAAAAAD5E/RYpsXXhiDcI/s144-o/Anotherr%252520Bromley%252520chance%252520goes%252520begging.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938995977953108242″ caption=”Another Bromley chance goes begging” type=”image” alt=”Another Bromley chance goes begging” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] The longer Swifts hold out, the more frustrated the hosts get. “No need to swear number five this is a family crowd” calls out a Heybridge supporter and receives a steely glare for his trouble. The home fans have now turned their frustration to the referee; “Well book him then!” screams a home fan as Eyres takes his time setting a goal-kick. The referee obliges and still gets stick for his trouble.
+
+“I tell you what, we’re hanging on here” mutters a Swifts fan as his team bring on a sub with no number – their kit only stretching to number 16 in a competition which permits seven substitutes. He sees little of the ball whoever he is, as the action remains tethered to the visitors’ goal. “It’s horrible… its bloody horrible” says the same supporter as Bromley push again; Elliott Buchanan rolling in a through-ball for Goldberg, but the forward misses his touch and Eyres plucks it from his feet.
+
+\[pe2-image src=”http://lh4.ggpht.com/-QTsHQJcFBIo/UmuNbGQU4LI/AAAAAAAAD5s/iO7zVGHXbOk/s144-o/One%252520last%252520chance%252520for%252520Bromley.JPG” href=”https://picasaweb.google.com/117823912047779151886/BroHey#5938996030293205170″ caption=”One last chance for Bromley” type=”image” alt=”One last chance for Bromley” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \]
+
+The penalty area is now packed, the mass of bodies preventing any purposeful movement with the ball, and when it does pop out of the melee it emerges in one of three states; in the arms of Eyres, sailing upfield, or flying over the crossbar. As the sky turns pink and with a young fan desperately urging them towards him like a rescuer trying to will someone out of the path of a Tsunami, Bromley hurl the ball forward one last time, but it is to no avail, and the full-time whistle sounds to herald one of the biggest upsets of the round.
+
+Heybridge cheer and run and hug in pockets across the field, whilst the Bromley crowd acknowledges them with generous applause. That’s the FA Cup that is – recognising your victors’ achievements over your own disappointment. After all, every non-league team needs their day. It’s reaffirming to experience, and one day hopefully even the dozen Bromley teenagers who head round to the tunnel to barrack the Swifts as they depart will get it.
+
+Words &amp; Photos Glen Wilson  
+Glen is Editor of venerable Doncaster Rovers fanzine [Popular Stand](http://popularstand.wordpress.com/) and can be found [here on Twitter](https://twitter.com/vivarovers).

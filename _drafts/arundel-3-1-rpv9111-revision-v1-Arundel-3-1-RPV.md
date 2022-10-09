@@ -1,0 +1,85 @@
+---
+id: 9118
+title: 'Arundel 3-1 RPV'
+date: '2015-08-19T18:53:23+01:00'
+author: 'Damon Threadgold'
+excerpt: 'Stefan Appleby at the 85 minute game between Arundel and Raynes Park Vale. Includes stanchion action and bucolia.'
+layout: revision
+guid: 'http://therealfacup.co.uk/2015/08/19/9111-revision-v1/'
+permalink: /2015/08/19/9111-revision-v1/
+---
+
+**Arundel 3-1 Raynes Park Vale**  
+ **FA Cup Extra Preliminary Round, 15 August 2015.**
+
+In hindsight, deciding to visit one of the most idyllic places in the country to take in the Extra Preliminary Round of the FA Cup on Saturday wasn’t the wisest decision I’ve ever made.
+
+![](https://lh3.googleusercontent.com/-cKCgVwwBh3A/VdS_ZkGdO1I/AAAAAAAAFak/3uOac0bCdNA/s800-Ic42/IMAG1635.jpg)
+
+Not because the game itself wasn’t good, which it (well, the second half) was. Played for the most part in a great spirit, on a carpet of a pitch, and not without moments of standout skill that more than justified the £5 entry fee.
+
+Not because Arundel itself isn’t lovely, and wonderful place to while away a few hours pre-game, to soak in the hills and the turrets, the timber-beamed ale houses and the winding river, the antiques shops and farmers markets.
+
+It’s perhaps that it is too much so. I’m in danger of writing a match report about a football game that includes no mention of the game but focuses instead on the wistful thoughts that accompany sitting on a platform mindlessly watching swallows swooping above. Arundel is the sort of place where it is perpetually summer, where the sun always shines on egrets loping lazily up river and hikers yomping contentedly with sticks and sacks.
+
+It’s in danger of becoming Country Diary with an unexpected conclusion on burger quality. Especially as I completely missed who scored what and when. I’m not cut out for match reports, I reckon.
+
+So, to refocus. I decided to pop into a pub for a pint pre-game. This being Arundel the pub was a house that has stood since 1625, with three ales on and a motherly barmaid straight out of Orwell’s imagination.
+
+![](https://lh3.googleusercontent.com/-o5ZboyWBwLs/VdS_Zdx5ymI/AAAAAAAAFag/6AzWwyHiPvw/s720-Ic42/IMAG1634.jpg)
+
+FA Cup fever had gripped the town to the extent that in the bar I was in, I witnessed a conversation about it.
+
+> “Arundel are at home aren’t they?”  
+> “Yeah, I’m thinking of heading round”  
+> “3 o’clock is it?”  
+> “Yeah. Think it’ll be the only time I get to see them this year!”
+
+Arundel isn’t a place that does excitement. It does slow moving, maybes, take-your-time, nothing rushed. The pub had a dartboard and as I mindlessly threw away in the corner, I felt like my arm movements were so exaggeratedly fast as to be almost offensive to my surroundings. Anything beyond four old boys clicking dominoes down is probably seen as extraordinarily foul.
+
+Pints in, to the ground. The entrance to Arundel’s ground is unobtrusively and apologetically tucked away in the corner of a car park. I missed it first time round, and had to ask advice at the shack on the putting green that backs on to it. The putting green is just past the entrance to the bowling green, where a crowd bigger than that inside the ground is gathered. It’s that kind of place.
+
+I find myself stationed on a side of the ground next to a group of young boys, all around 11 or 12 years old. As they enter through a gap in the fence next to a brook, one turns to another.
+
+> “Pitch looks good”  
+> “Yeah, it’s the best I’ve ever seen”.
+
+It’s the sort of place where their pre-teens talk like mature old men.
+
+![](https://lh3.googleusercontent.com/-q6Ua1SIym4M/VdS_ZtkDDpI/AAAAAAAAFac/DWLp2J_4lOA/s720-Ic42/IMAG1640.jpg)
+
+What happened in the game? Well, eventually, Arundel won 3-1. They were more than good value for it. Driven on by the shaven-headed midfield dynamo Alex Biggs, with some great hold-up play by their shaven-headed number 9 Josh Biggs (the bigger of the two Biggs), Arundel eventually wrested control from a toothless Raynes Park side.
+
+Raynes Park is a place I know very little about, save two things. Firstly, it’s relatively near Wimbledon in south-west London. To this, I can now add that it appears to be so near that they decided to wear the exact same kit. A perplexing decision, almost up there with the astonishing number of clubs in the west country called The Robins. I’m sure there’s something in that. I just can’t be bothered to work it out.
+
+The only other thing I know about Raynes Park is that I once spent the evening there about 12 years ago, trying unsuccessfully to convince a girl I knew to sleep with me. Since then I’ve always held a completely unfounded grudge against the place. Their hopeful lumps forward don’t exactly do a lot to change my mind on that during this game.
+
+To be fair though, during the first half Arundel seemingly only have one outlet ball, to their old-fashioned chalk-booted right-winger Barney Boutwood. The fact that they only find him on one occasion during 45 long minutes makes for a frustrating watch.
+
+It looks like the most likely route to a goal will come from the kamikaze Raynes Park keeper, who moves off his line more often and more erratically than a five-year-olds handwriting.
+
+Obviously, I missed Arundel’s first goal because I really needed a wee just ahead of half time. I also decided to go for another pint. It was Abbot Ale. It was pretty nice.
+
+![](https://lh3.googleusercontent.com/-RAwoVUQ8U3E/VdS_bmcZJJI/AAAAAAAAFa0/LZ1fqxOe680/s720-Ic42/IMAG1642.jpg)
+
+What I can tell you is that it went in in the 40th minute, and only two minutes later the referee blew for half time. Evidently he also needed to head the toilet.
+
+Raynes Park’s Victor Okunado equalises in the 60th minute. I also missed this, because I decided to get a burger. I’m starting to be glad that I paid only £5 to get in.
+
+To be fair though, it is a cracking burger, wonderfully juicy and housed in a bun that sits atop the fence of soft and crisp just perfectly. The fries that accompany it are thin and crispy – fries, rather than chips. They work very well for me, cooked as they are to a golden salted perfection.
+
+I missed the goals, so you’ll have to make do with that I’m afraid.
+
+The second half is much better generally, and Arundel really take hold after the shock of the equaliser. Raynes Park try to get their left-winger on the ball as often as possible, to some success, but Arundel shut everything down with the minimum of fuss, and break clinically and crisply. Two goals in ten minutes end any hope.
+
+As if to add to Arundel’s olde worlde charm, the two goals they score to win are from magnificent headers. The first, from a corner, is simple and effective, centre-back Ryan Peake heading in unopposed from a simple ball flung into the metaphorical mixer.
+
+Their third owes everything to a wonderful ball from the aforementioned Boutwood, turning back on himself and playing a perfect cross into the middle. It is powered into the top corner by the Bigger Biggs, hitting the stanchion and rebounding back out. Perfect.
+
+The game peters out, neither team wanting to take any more risks, a pre-season friendly in all but name. It ends with an unexpected bang in the 88th minute, the referee obviously eager to get first dibs on the plate of Jammie Dodgers and Party Rings placed charmingly on the covered pool table in the clubhouse for the players.
+
+There is a chance that some of the details in this report aren’t entirely accurate. Arundel had me lost in a world of castles and enchantment, lawn bowls and swallows.
+
+During the winter, the FA Cup will take us to wet and windy industrial backstreets, we’ll see red cards and be forced to drink Foster’s. But at the height of summer, on the same day as the start of the northern league season, the 2015/16 FA Cup magically started in Arundel.
+
+Words &amp; Pictures: Stefan Appleby, otherwise known as Twitter’s famous[ @AppleBamos](https://twitter.com/applebamos)

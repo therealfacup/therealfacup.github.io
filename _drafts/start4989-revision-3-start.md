@@ -1,0 +1,28 @@
+---
+id: 6867
+title: start
+date: '2012-05-12T14:16:03+01:00'
+author: 'Simon Barnett'
+excerpt: '"Ladies and Gentlemen, yesterday at Wembley we might have lost the Cup but you the Liverpool people have won everything. You have won the admiration of the policemen in London and you have won the admiration of the public in London."'
+layout: revision
+guid: 'http://therealfacup.co.uk/2012/05/12/4989-revision-3/'
+permalink: /2012/05/12/4989-revision-3/
+---
+
+[![](http://therealfacup.co.uk/wp-content/uploads/2011/08/socrates4-350x175.jpg "socrates4")](http://therealfacup.co.uk/2011/08/16/start/socrates4/)OK. So, the opening week of the Premier League season was underwhelming. Some bloke left some team to go to another team and hands were wrung. A man threw himself on the floor, another man reacted, the original man did a silly thing and then the other man threw himself on the floor. There was some tedious nil nils. Most unseemly.
+
+Bill Shankly had quite a turn of phrase. “Ladies and Gentlemen, yesterday at Wembley we might have lost the Cup but you the Liverpool people have won everything. You have won the admiration of the policemen in London and you have won the admiration of the public in London.” He was talking about the fans of both Everton and Liverpool and the public and policemen of London. I’m not sure he would have such admiration for certain people in either place right now, or indeed many other places. In short, this last week in England has been … most unseemly.
+
+This weekend sees a chance to redeem ourselves, as a nation, and put those near to us ahead of commercialism. All we’re going to be saying is, your local community needs you, your local community club needs you. Just for one week you could partake in the very first round of this season’s FA Cup and help out a club that relies on you more than the commodity you normally go and watch, the commodities that are tearing up rule books and looting our game and your pockets. We’re not intending to be preachy, simply joining the zeitgeist, and partly because that word has to go in most of our posts. Search for it, you’ll find loads. This one seems relevant, for once.
+
+Liverpool fans. Your team is away, at 12:45. Unless you’re going, why not watch the game in the clubhouse of any of these teams … Formby, Runcorn or Bootle … and then watch their game? OK, you Toffees have the slight excuse of a 3pm home game but, well, you could give it a go?
+
+[![](http://delta.xssl.net/~sbarnett/therealfacup/wp-content/uploads/2011/08/socrates2-350x175.jpg "socrates2")](http://therealfacup.co.uk/wp-content/uploads/2011/08/socrates2.jpg)Tottenham fans. Caught up in the middle of it all. Team not playing again. Haringey Borough are – and they play on White Hart Lane. Not actually at WHL but up the road, against AFC Kempston Rovers.
+
+On Sunday, you Norwich City fans will be excited at the prospect of a first Premier League home game for a while so, on Saturday, you’ll all be free, won’t you? What you could do is pack your shades, if summer has arrived yet, and head for the broads to watch Wroxham Town .v. Dereham Town. Alternatively, you might want to pack your bucket and spade and head for the beach to watch two of East Anglia’s premier seaside resorts see who’s king of the sandcastle, Great Yarmouth Town .v. FC Clacton.
+
+Geordies! Mackems! MASSIVE game on Saturday, huh? Odd kick off time though, eh? Midday? By our calculations that gives you an hour from final whistle to get to … Whitley Bay .v. Bishop Auckland or Jarrow Roofing Boldon CA .v. Guisborough Town, hell you could even go to Sunderland RCA .v. Birtley Town on Friday night.
+
+As I said, this is not intended to be preachy and you’re probably bored already so we’ll stop but, frankly, Mr Shankly … you must move fast, you understand me? There may not be much time left for some of these clubs and, ell, it might be good for the soul. There are just three Premier League kicks off at 3pm this Saturday, you might make a difference by going somewhere new. And if you can’t do it this week, another chance is there in just two weeks time when the national team are playing and it’s [Non League Day](http://www.nonleagueday.co.uk/)
+
+We’re off to Ascot .v. Wembley on Friday night, [Colliers Wood United .v. Chessington &amp; Hook United](http://therealfacup.co.uk/2011/07/28/therealfacup-v-socrates/) on Saturday and maybe Barkingside .v. Hertford on Sunday. And all for less than it will cost to get into Arsenal .v. Liverpool, if you can source a ticket. Find a game here at [the FA.](http://www.thefa.com/TheFACup/Fixtures)

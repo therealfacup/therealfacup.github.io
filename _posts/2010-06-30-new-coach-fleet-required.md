@@ -1,0 +1,77 @@
+---
+id: 2419
+title: 'New Coach Fleet Required'
+date: '2010-06-30T21:23:57+01:00'
+author: 'Damon Threadgold'
+excerpt: 'A lot has been said about the failings of English football this week and the number of coaches has been pinpointed. But who''s fault is it? It surely isn''t as simple as THE FA? No.'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=2419'
+permalink: /2010/06/30/new-coach-fleet-required/
+has_tweeted:
+    - '1'
+post_image:
+    - 'https://lh4.googleusercontent.com/-zTsvZTXLUX4/U3yx0yC87vI/AAAAAAAAEPI/da8aGYOXL5M/s450/BusForeStreet1_450-1.jpg'
+snap_MYURL:
+    - ''
+snapEdIT:
+    - '1'
+snapFB:
+    - 's:247:"a:1:{i:0;a:8:{s:4:"doFB";s:1:"1";s:8:"postType";s:1:"T";s:10:"AttachPost";s:1:"2";s:10:"SNAPformat";s:51:"New post (%TITLE%) has been published on %SITENAME%";s:9:"isAutoImg";s:1:"A";s:8:"imgToUse";b:0;s:9:"isAutoURL";s:1:"A";s:8:"urlToUse";b:0;}}";'
+snapTW:
+    - 's:123:"a:1:{i:0;a:5:{s:4:"doTW";s:1:"1";s:10:"SNAPformat";b:0;s:8:"attchImg";s:1:"0";s:9:"isAutoImg";s:1:"A";s:8:"imgToUse";b:0;}}";'
+categories:
+    - 2010-2011
+    - Comment
+    - 'World Cup'
+tags:
+    - coach
+    - England
+    - Spain
+    - UEFA
+---
+
+[![DSC_0093](http://lh6.ggpht.com/_3L4_Y2OBz2M/StXTuV6DY2I/AAAAAAAABSM/kCU2vdncX9o/DSC_0093.jpg?imgmax=200)](http://lh6.ggpht.com/_3L4_Y2OBz2M/StXTuV6DY2I/AAAAAAAABSM/kCU2vdncX9o/DSC_0093.jpg?imgmax=640)
+
+Coaching in England has been taking a bit of a bashing over the last week or so. Much has been made of Spain having 750 top notch (UEFA ‘A’ Grade) coaches while England can muster just 150. If you drill down a bit, it gets worse. It is claimed that there are 35,000 UEFA ‘B’ &amp; Pro coaches in Germany, 24,000 in Spain and a whopping 2,800 in England! When you consider the latter two countries populations are 45million and 51 million respectively, you can see Soho Square might have a problem.
+
+The Times (thanks for stats Mr Dickinson, I would link to your piece but the Times won’t let me, even though I bought a copy of the paper) the other day published a similar article drawing comparisons with the emergence of a youthful and skilful German team and Gab Marcotti (today, see previous brackets) noted the visible, accessible and approachable big wigs from the German and Spanish FAs in contrast to the invisible Englanders. The Germans have got it going on but may not yet achieve so I’m going for the Spanish angle, they are an already established national football power and their squad is perhaps closer in age group to England’s.
+
+As I said above, the two nation’s populations are not too dissimilar, so who is employing these coaches? The answer in England appears to mostly be the big clubs, some Championship clubs, the FA and a handful of academies or private enterprises across the country. In Spain there appears to be fully-fitted, shiny turbo diesel coaches as far as the eye can see, all the way from high schools through to the two superpowers of Spanish football.
+
+Some of our Spanish readers will know more about this than I but it is fairly obvious that the spread of Spanish coaches is thicker and the vast number of qualified people surely allows them to identify earlier when a player has real potential. Although fairly self evident, at every level from school, to youth to reserve to lower league and to the full first team of the best clubs in the country, there is someone qualified to identify, nurture and grow a player. In England, those people are thinner on the ground so, it would be follow, that many a good player slips through the net, stagnates or leaves football altogether.
+
+To illustrate this fairly flimsy hypothesis there are some genuine facts, though. Spain’s World Cup squad includes 20 players who come from all over Spain but came through the youth ranks (or joined before aged 17) of just 5 teams, Barca, Real, Sevilla, Valencia and Athletic Bilbao. Or was it Madrid? I forget now, quality research! These players were, therefore, either identified for greatness between the ages of 10 and 14 or were caught by the time they were 17. Just 3 players came through from elsewhere and those teams are all top flight here-and-theres, Espanyol, Sociedad and Osasuna.
+
+England, on the other hand, have just 15 from the academies of five clubs – West Ham, Forest, Liverpool, Spurs and Leeds. They are all fairly big names but, with the exception of Spurs, they are not exactly setting the world alight at present. More strikingly though are some of the teams whose youth ranks some of the others players have come from – Watford, Luton, Brighton, Leicester, Norwich and Shrewsbury. This sounds good and varied and is in part down to the FA guidelines on youth players and ‘local clubs’.
+
+Is this rule any good? Well, it protects investment by local clubs and ensures it’s difficult for the big boys to snaffle up young talent. In Spain however, if Barca come sniffing, you can legitimately up-sticks and head off. For English youth in areas with so few class coaches, this might be a problem. Hence teams seek youth from the continent – a well documented topic others have broached better than I could. Maybe the English way lacks foresight?
+
+[![DSC01475.JPG](http://lh5.ggpht.com/_3L4_Y2OBz2M/S4CLIhRW9FI/AAAAAAAAB9E/yRdREDRWxZI/DSC01475.JPG?imgmax=200)](http://lh5.ggpht.com/_3L4_Y2OBz2M/S4CLIhRW9FI/AAAAAAAAB9E/yRdREDRWxZI/DSC01475.JPG?imgmax=640)
+
+The next piece of ‘evidence’ is, on the surface, a bit odd. And I might be facetious now too. Compared to Spain, about double the number of current England players were spotted early and played for their country at U16 level. That surprised me, although on the face it it would imply that the England hierarchy got the wrong players, or have subsequently ruined them or had them ruined by others. There are an almost equally high number of players in the England squad who had represented their country at U18 and, although the fact that very few did so at U17 might seem slightly strange; England’s U17 team has rarely been taken seriously.
+
+The above is not very revealing except perhaps the final bit. This is especially the case when you note that the U19 and U20 sides are also very infrequently fielding teams. Now, here we might have something. If you look at the Spain squad all of them have played for a year group on or before U21 and the vast majority of them have got a number of caps at most, and some cases all, levels from U15 to U21. England’s squad have a lot of U16 caps, a fair few U18 caps and a good number have played for the U21s, there is almost nothing for U15, U17, U19 or U20.
+
+This phenomenon means that, in their developmental years, English players often are bunched together more frequently with players outside their age/development/size bracket, both at international level and, subsequently, at club level. This can mean they are either thrust higher too soon or held back too long. And this treatment of players in wider age groups makes it easier to see why the old English phenomenon of the bigger lad progressing at the expense of the talented lad might actually be happening. This is not ubiquitous, of course, but just more prevalent in England, so we have a few good players but not a squad crammed full of them.
+
+But why are there not a great deal of U17, U19 and U20 teams? Why are academies often structured to span two years in one age group? Indeed, why have Mansfield just shut their whole academy? \[It’s a good job Nottingham is fairly nearby or the kids of Mansfield might have literally no access to good coaches.\] Do we not pay enough money for coaches? There’s plenty of money to throw at the national stadium and manager!
+
+The by-product of the national regime neglecting some age-range teams is that club teams have a similar regime. The Spanish approach sees players, on the whole – but certainly not exclusively – have a more gradual physical and football development against and with players of their age, on a year-by-year basis.
+
+What does all that above mean? In Spain you can look at it two ways. Firstly and simplistically the big five, or more pertinently big two, Spanish sides have the benefit of no restrictions on movements of the talent available. For sure. Secondly, the amount of qualified coaches in Spain means there’s a country-wide network that ensures talent can be identified and nurtured up a pyramid with the national team at the top and the big two as the second level, with everyone else in between. In truth, it’s probably a bit of both but the number of Spaniards in the aforementioned five clubs (four of whom are arguably Spain’s ‘Big 4’) sides is considerably higher than the number of Englishman in the top five English club sides.
+
+[![DSC01715.JPG](http://lh5.ggpht.com/_3L4_Y2OBz2M/S-1no0R0TyI/AAAAAAAACGU/mWPfJ8SYb-A/DSC01715.JPG?imgmax=200)](http://lh5.ggpht.com/_3L4_Y2OBz2M/S-1no0R0TyI/AAAAAAAACGU/mWPfJ8SYb-A/DSC01715.JPG?imgmax=640)
+
+So, were the English national teams cut because there weren’t enough coaches or was there simply not enough money to run these teams? Or did a dictat from on high say these teams were not necessary? Anecdotal evidence suggests the UEFA B courses (or higher) are widely available in England, there are people who are qualified to do the jobs but the jobs are not necessarily there or are insufficiently well paid to take. I am aware of a number of instances of English coaches gaining the UEFA B licence, not being able to get a job and emigrating to either the US or Australia where such bits of paper are deemed important and the prospective coach is offered a salary more in keeping with the work put in. Oddly, this talent drain was evident in the 1920s and 30s, as Jonathan Wilson so brilliant documents in ‘Inverting The Pyramid’.
+
+You only have to look on unofficial club forums, sports management blogs or just comments at games to know that one reason for the dearth of jobs, once qualified, is that the ex-pro is favoured very much over a better score on a piece of paper. There are people out there with UEFA B licences or higher with either no jobs to go for, or such poorly paid ones that it is not worthwhile to either carry on in England or carry on in football?
+
+To me, it looks like either the football clubs are going about things all wrong or the FA’s distribution of funding is insufficient/awry – and Wembley looks increasingly the folly it was destined to be. Or maybe the Premier League clubs are favouring jobs for the boys over good qualifications and are simply not employing enough qualified coaches. Even if all the elite coaches in England were in the Premier League, that’s only on average 7 per club. Each club presumably having 30+ pros and 15-20 players at various ‘youth’ levels. That’s still not too many coaches to go round and they obviously aren’t all employed in the Premier League.
+
+So, the FA haven’t got enough money then. Why not? Well, the aforementioned stadium and the series of national team managers doesn’t help. Also, their ‘A’ list product was stolen from them by a select band of clubs who wanted more of the pot to themselves. Funding for the national teams and national game was immediately slashed for the profit of the few, whose profits went through the roof courtesy of the Murdoch dollar. ‘Oh not again’, I hear you say, ‘he’s going to bang on about Sky!’. OK, I won’t, but it isn’t as if it’s not blatantly factual.
+
+It is easy to blame the FA because they are having their power and finances eroded by the Premier League, they shoot themselves in the foot regularly, the Premier League blames them for everything and the tabloid media lap it all up creating the image of an incompetent behemoth boys club. This may not be entirely untrue but it is also unfair on the vast majority of people who have the FA as their overarching employer and who strive with scant funding or reward.
+
+FA revenues are of course now solely gained from lower tier football they cannot afford to run properly and a national team that is suffering because the rich clubs are not pumping enough, either financially or ethically, back in to the football economy in order to replenish their product with new players to keep it going. The Premier League are, arguably, a pawn in this too because the players have so much power, perhaps courtesy of J.M.Bosman. So, in short, the England team is suffering because of the players within it, the clubs for whom they play, the banner under which the learned their trade, the people who broadcast their games and the people who watch them. Yes. You. And me.
+
+England, as a national team, is therefore pretty much fucked unless the whole country takes a very good look at themselves and shapes the fuck up. I have my mirror and have removed my finger from my arse. Where do you want me, Mr Capello?

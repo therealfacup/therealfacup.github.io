@@ -1,0 +1,35 @@
+---
+id: 8537
+title: 'Bring Me The Head Of Diego Garcia'
+date: '2014-01-20T17:31:37+00:00'
+author: 'Simon Barnett'
+excerpt: 'While the air of novelty hung heavy over this fixture, there was something about it that struck a chord with therealfacup. In an era of football when money is king and fans and players alike think they deserve to win, both the Chagos Islands and Sealand have a reason not only to just play football but to simply be recognised by the World'
+layout: revision
+guid: 'http://therealfacup.co.uk/2014/01/20/6838-revision-v1/'
+permalink: /2014/01/20/6838-revision-v1/
+---
+
+[![IMG_7619.JPG](http://lh6.ggpht.com/-1uugvjB8HrA/T6fB_wjj3gI/AAAAAAAABh4/MsYXq2gCxIU/h320/IMG_7619.JPG)](http://lh6.ggpht.com/-1uugvjB8HrA/T6fB_wjj3gI/AAAAAAAABh4/MsYXq2gCxIU/w800/IMG_7619.JPG) While the air of novelty hung heavy over this fixture, there was something about it that struck a chord with therealfacup. In an era of football when money is king and fans and players alike think they deserve to win, both the Chagos Islands and Sealand have a reason not only to just play football but to simply be recognised by the World. And the best we could manage was that hackneyed headline … tsk, shame on us.
+
+Sealand’s reason is perhaps more whimsy, to the populace rather than the Bates family, but the Chagos Islands’ plight can be viewed as a basic allegory for the subjogation of football by the money and power hungry elite \[[see Ed Stubbs’ piece on In Bed With Maradona](http://inbedwithmaradona.com/journal/2012/4/30/the-chagossian-dream.html)\]. And, in a week that has seen the departure of MCA, they fight for their right to party (sorry) in a manner that would probably please the Beastie’s Tibet-supporting rapper. A displaced people with decades of struggle culminating in a fixture against another land outside the main structure of society.
+
+[![IMG_1814.JPG](http://lh3.ggpht.com/-4sE_eGpwK_Y/T6fEa50w04I/AAAAAAAABkQ/ieQ6jQut-uM/h320/IMG_1814.JPG)](http://lh3.ggpht.com/-4sE_eGpwK_Y/T6fEa50w04I/AAAAAAAABkQ/ieQ6jQut-uM/w800/IMG_1814.JPG) The event had a nice balance between seriousness and light-hearted valour. For Sealand … Ralf Little stood, hand on heart, for the anthem and kissed the badge when necessary, providing the \*cough\* glamour. Simon Charlton and Derek Stillie provided the ex-pro veneer of quality, the stadium announcer read/sang his pre-arranged songs for the Sealand masses. And Sealand offered fans the chance to play in the game by submitting their footballing CV before selection. It’s perhaps here where the earlier analogy breaks down. In some ways you could argue that Sealand’s squad is a little on the Man City side.
+
+The Chagos team, in contrast, trained for weeks, set their stall out professionally, had the backing of a set of fans who created as they went along and sang their hearts out with a warming passion, supporting their exiled countrymen.
+
+[![IMG_7685.JPG](http://lh3.ggpht.com/-bCTRF8q2We0/T6fDxLaTPuI/AAAAAAAABj8/gQ7odinSAek/h320/IMG_7685.JPG)](http://lh3.ggpht.com/-bCTRF8q2We0/T6fDxLaTPuI/AAAAAAAABj8/gQ7odinSAek/w800/IMG_7685.JPG) **Chagos Islands 3 – 1 Sealand**  
+We really had no idea what to expect out of this fixture, both sets completely unknown quantities. It took about 30 seconds of being in the ground for us to get down off the fence. The Sealand side were being fawned over on the pitch by the assorted media \[yes, assorted media!\] when we arrived while the Chagossians warmed up off the pitch, as if they weren’t yet allowed to enter the field of play. Then, hurriedly, they were told to get out on the pitch for the pre-match presentation. Photos were taken, hands were shaken and we instantly went and stood next to the Chagos dugout. The underdog was clear.
+
+Playing with a \*insert footballing third world cliche\* a refreshingly gung-ho niaivety the Chagos Islanders took a while to settle but, when they did, after the departure of Captain Charlton with a tweaked hamstring, they played the ball around with a competence and verve associated with a team that just wants to be allowed to play football.
+
+[![IMG_7674.JPG](http://lh4.ggpht.com/-h4ub2JNDr7Q/T6fDUZAXj9I/AAAAAAAABjc/ZPRooej1fRo/h320/IMG_7674.JPG)](http://lh4.ggpht.com/-h4ub2JNDr7Q/T6fDUZAXj9I/AAAAAAAABjc/ZPRooej1fRo/w800/IMG_7674.JPG) The Chagossians quickly realised that Prince Liam of Sealand was an Al Saadi Gaddafi figure and nepotism at left back is rarely a good idea. They focused many of their attacks down his side and, although it took them a while to find a finish to any of the moves that went down their right, it was clearly the way to go.
+
+The BBC cameras [were there](http://www.bbc.co.uk/sport/0/football/17981522) and the Soaraway Sun were on hand no doubt ready to provide front page headlines of the Chagossians funny speech and forrin ways – and mainly talk about Ralf Little, exactly as we did on the Twitter feed during the game. Shame on us (again). The Chagossians 2-0 half time lead was well deserved and then, in true realfacup fashion, we were a minute late out for the second half and missed the re-start. Except it wasn’t, it was the re-start after a Sealand goal, a fact we didn’t find out until after Chagos’ third when the fans started singing “3-1” and the lino confirmed it.
+
+And then substitute ‘Marcus’ came on for Sealand, presumably the winner of the fans lottery? He made an immediate impact, getting involvement in a Sealand move that ended up with Jayden Gibbs hitting the post. He did get done for the Chagos’ third but, to be fair, Sealand were looking for an equaliser and they looked as though they should perhaps have got him on earlier.
+
+[![IMG_7692.JPG](http://lh3.ggpht.com/-WX9tFUfPWjI/T6fDu_-U7gI/AAAAAAAABjw/nUgfEoPD7O0/h320/IMG_7692.JPG)](http://lh3.ggpht.com/-WX9tFUfPWjI/T6fDu_-U7gI/AAAAAAAABjw/nUgfEoPD7O0/w800/IMG_7692.JPG) An intriguing day, we’d definitely go and watch the Chagos Islands again and we hope they get themselves into the football pyramid, the Sussex County FA could give them a place, surely … and maybe [Colin Roberts](http://en.wikipedia.org/wiki/Commissioner_of_the_British_Indian_Ocean_Territory) could give them their islands back? But, back to reality … while the Chagossians, evicted by Colin’s predecessors to make way for a strategic US Naval base, are [unlikely to get their Islands back](http://en.wikipedia.org/wiki/Diego_Garcia), maybe a few more fixtures like this will help them at least cobble together enough money to participate in the VIVA World Cup.
+
+Sorry to Sealand, loving your work but the Chagossians have seemed overlooked in match coverage so we thought we’d redress the balance. Cheers to both for a grand match.
+
+Check out [David Bauckham’s photos](http://www.flickr.com/photos/ccpub/sets/72157629985639833) of the game and our meagre few are [here](http://www.facebook.com/media/set/?set=a.10150893339967359.477606.156412412358&type=1).

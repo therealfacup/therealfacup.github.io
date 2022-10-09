@@ -1,0 +1,36 @@
+---
+id: 9254
+title: '4Q Review'
+date: '2015-11-03T00:44:11+00:00'
+author: 'Damon Threadgold'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=9254'
+permalink: '/?p=9254'
+slide_template:
+    - default
+snap_MYURL:
+    - ''
+snapEdIT:
+    - '1'
+snapFB:
+    - 's:217:"a:1:{i:0;a:8:{s:4:"doFB";s:1:"1";s:8:"postType";s:1:"I";s:10:"AttachPost";s:1:"2";s:10:"SNAPformat";s:15:"%EXCERPT% %URL%";s:9:"isAutoImg";s:1:"A";s:8:"imgToUse";s:0:"";s:9:"isAutoURL";s:1:"A";s:8:"urlToUse";s:0:"";}}";'
+snapTW:
+    - 's:140:"a:1:{i:0;a:5:{s:10:"SNAPformat";s:14:"%TITLE% %SURL%";s:8:"attchImg";s:1:"0";s:9:"isAutoImg";s:1:"A";s:8:"imgToUse";s:0:"";s:4:"doTW";i:0;}}";'
+categories:
+    - News
+---
+
+<div></div><div>**FA Cup 4th Qualifying Round**</div><div></div><div>So, there we have it. The Real FA Cup is, largely, OVER for another year. As we said in the preview, this is the saddest of all the rounds. No more drinking on the touchline, no more entrance fees under a tenner, no more new places to visit. *Sigh*. And was it the suggested sombre, final graveyard for the lowest of the non league sides left in? On the whole, yes, it was. More of the real minnows fell than went through, as you’d expect, but some survived.</div><div></div><div>The rounds real winners were Sporting Khalsa. Friends made, headlines written, coffers swelled and fans entertained, they bowed out to FC United of Manchester who will now go on as one of the younger and lower ranked sides left in the cup. So, Sporting Khalsa are no more and with them goes the participation of the 9th tier clubs from this year’s tournament. Their 6 round epic is done and they are unlikely to be usurped outright as our Team of the Season because Harlow Town, Bamber Bridge, Hornchurch and AFC Rushden &amp; Diamonds are all also gone.</div><div><div></div></div><div>But, two 8th tier sides remain and they now pick up the mantle. The real winners of this round were, in the very literal sense, Didcot Town and Northwick Victoria.</div><div></div><div>Didcot …</div><div></div><div>Northwich Victoria …</div><div></div><div>Those two sides now match Khalsa for rounds negotiated in this seasons’ s FA Cup, barring any as yet unseen regulatory intervention. Six rounds in, balls deep in the FA Cup and … blah blah blah, we’ve written this so many times over the years ’they have already won as many games as it will take a top flight club to get to the final’.</div><div></div><div></div><div>We were disparaging about the professional non league clubs of the National League in the last round but now it’s done, we’re all over them. We look to them to</div><div></div><div>Hopefully, unlike previous years, this is not the end for us this year. We will soldier on picking out the non league angles as best we can.</div><div></div><div>Giant killers</div><div></div><div>Port Vale Maidenhead 3-6</div><div>Bristol Rvrs Chesham 4-7</div><div>Northwich Vic Borehamwood 8-5</div><div>Salford City Notts Co 7-4</div><div>Millwall AFC Fylde 3-6</div><div>Shelf Utd v Worcester 3-6</div><div>Doncaster 3-6 Stalybridge</div><div>Leyton Os Staines 4-7</div><div>Gainsborough Shrewsbury 6-3</div><div>FC UM Chesterfield 6-3</div><div>Wealdstone v Colchester 6-3</div><div></div><div>Also of note Maidstone v Yeovil</div><div></div><div></div><div><div>1st Round</div><div>Northwich Victoria 8</div><div>Dicot Town 8</div><div>Barwell 7</div><div>Chesham Utd 7</div><div>Salford City 7</div><div>Stourbridge 7</div></div><div>Staines Town 7</div><div>**Braintree Town v Harlow Town**  
+57 teams separate Khalsa from FCUM in the football pyramid, a similar number separate National League side Borehamwood from the Ryman League 1 North’s AFC Hornchurch. But the tie with the starkest gap this round is more. Separated by 68 places in the pyramid, Braintree Town will host a local derby with Harlow Town. Historically, it’s not unkind to suggest that Harlow are the bigger name, indeed they have a mighty scalp in Giant Killing – Leicester City. But, despite their proximity and erratic non league histories, these two sides haven’t actually met that often. For their part, Braintree are a funny beast. In their 80 year history they have almost no cup pedigree to speak of but their current status is their best ever. In 2011 they broke into the Conference National for the first time. With that status came the opportunity to enter the FA Cup at the 4th Qualifying Round, big chance to draw the big boys. Until 2011, Braintree had only ever once got past the 4th Qualifying Round and, even now they start with one foot in the propers, there they’ve never got past the 1st Round.
+
+The minnow with the best chance of progress is probably Didcot Town. Both they and AFC Rushden &amp; Diamonds face teams from only one league above them but Didcot have home advantage against Brentwood Town who, in the last round, struggled for two games to get past a side two tiers below them. Didcot have also beaten a side from Brentwood’s league already in the Cup, knocking out VCD 4-3 after a replay.
+
+A couple of other ties see struggling National League sides visit promotion chasing Northern Premier League sides. Bottom of the table Kidderminster Harriers have a rather tricky trip eight miles down the road to Stourbridge. The Harriers miserable season threatens to get worse as they take on a side who went 10 games unbeaten until losing to Ilkeston last time out with their eyes temporarily off the league prize.
+
+Salford City host perennial muddlers Southport. Southport, a side who always seem to crop up in our thoughts but who rarely seem to do anything except get knocked out in the first round. Except last year, when they got to the 3rd Round and lost to Derby. Also except the olden days when they were regulars in the 3rd, 4th and 5th Rounds, even the Quarter Finals once! Salford of course are another side with a whiff of Manchester United hanging over them, with their cabal of ex-United stalwarts playing Football Manager. Their promising season sees them in the play offs despite having only won 1 home game. A one hundred percent away record keeps them in the title hunt.
+
+The biggest game of the round is without a shadow of a doubt Tranmere Rovers v Lincoln City. The only genuine tie between two long standing professional clubs fallen on hard times. Of course, Lincoln have been out of the league for longer but they’re still a big draw. It is one of a suspiciously low number (four) of all-National League ties. It’s almost as if it was planned, after the whingeing of recent years.
+
+For all your fixtures needs see [over here](http://therealfacup.co.uk/fixtures/facup/) – and if you fancy finding a game nearby, here’s our [fixture map](http://therealfacup.co.uk/map/).
+
+</div><div></div><div>Various stats courtesy of [@FACupFactfile](https://twitter.com/FACupFactfile)</div>

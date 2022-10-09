@@ -1,0 +1,41 @@
+---
+id: 8350
+title: Telstars
+date: '2013-09-15T20:17:23+01:00'
+author: 'Damon Threadgold'
+excerpt: 'Regular visitor, Stuart Fuller from The Ball is Round does ... Scottish Play, Tiffany Mitchell, Paul Alcock and a peeking-through-fingers bum-squeaker of a cup win.'
+layout: revision
+guid: 'http://therealfacup.co.uk/2013/09/15/8346-revision-v1/'
+permalink: /2013/09/15/8346-revision-v1/
+---
+
+**Peacehaven &amp; Telscombe 2-3 Lewes**  
+ **FA Cup 1st Qualifying Round 2013/14**
+
+“Oi…lino. Six minutes to be added on…Six minutes. We’ve played an hour of the Sussex-by-the-Sea derby and Lewes are losing. We aren’t used to this. This is the new Lewes, not the old “we will capitulate to lower league sides in any competition” Lewes. Last season we even managed to lose to a County League Two side. That’s special, that takes some doing.
+
+But this season we are still to taste defeat. Of course, today will be the day. Away to our new local rivals, with the rain pouring down, on a pitch with a slope. I’m sure that Peacehaven and Telscombe have the proverbial Postman, Butcher and Teacher somewhere in their starting XI. They will be talking about this game for years to come. The day they came of age, beating the new enemy from over the South Downs.
+
+\[pe2-image src=”http://lh3.ggpht.com/-wyWSdQME6hg/UjYCbh8eJxI/AAAAAAAADos/jYLIHCWfRUc/s144-o/9741075183\_acb3b53dc6\_b.jpg” href=”https://picasaweb.google.com/117823912047779151886/PeaLew#5923925031844194066″ caption=”” type=”image” alt=”9741075183\_acb3b53dc6\_b.jpg” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] Twice in the past five minutes Peacehaven players have fallen to the ground needing treatment. The time is ticking away and we all know that we wont see half of the six minutes added. Remember Leiston, says Cynical Dave. The word that drives the same amount of fear into Rooks fans as the Scottish Play to a Thespian. Nobody wants to relive that memory.
+
+As usual, we came with hope in our hearts, marching along the seafront from Brighton (well, Danny and Dave did – I drove and met them in the pub) but soon started seeing our bubbles fade and die. This was Peacehaven and Telscombe’s Christmas, Birthday and Stag Night all rolled into one. They’d been selling tickets online during the week, using the marketing statement of “you will get to the bar quicker if you buy in advance”. They had us at bar. Over six hundred squeezed into Piddinghoe Avenue in time to see the teams come out. The home side dressed in their new tracksuit tops, each holding the hand of a mascot. Passions had never run as deep since Tiffany Mitchell’s ashes were scattered over the cliffs down the road.
+
+We expected the early onslaught. The Magpies were the top scorers in the Ryman League South this season, scoring at will. Unfortunately, they had also conceded at will too – none more evident than their 4-1 up to 4-5 down game against Horsham in midweek, although they did manage to grab a point eventually. What we didn’t expect was to be a goal behind after just 13 minutes when Trevor “Greedy” McCreadie slotted home.
+
+\[pe2-image src=”http://lh4.ggpht.com/-DqO4fSTP1R0/UjYCbtnTzmI/AAAAAAAADow/qnd1DGFCLwI/s144-o/9741081789\_d3e184a2a0\_b.jpg” href=”https://picasaweb.google.com/117823912047779151886/PeaLew#5923925034976661090″ caption=”” type=”image” alt=”9741081789\_d3e184a2a0\_b.jpg” pe2\_single\_image\_size\_format=”C” pe2\_single\_image\_size=”s640″ pe2\_img\_align=”center” \] The hundred or so Lewes fans gathered behind the goal had nothing to cheer about in the first period apart from Jack Walder pushing the referee over. Not in a Paul Alcock comedy way, but in a “get out of the f’ing way” way. Yep, we were clutching at straws for any sign of Lewes passion.
+
+The choice words coming from the Lewes dressing room floated on the air into the Committee room. It seemed that the management team were a bit unhappy and made it clear a repeat in the second half wouldn’t be tolerated. Two minutes in and their message had obviously got through as Jack Dixon smashed the ball home after a Treleaven throw hadn’t been cleared. That was Dixon’s sixth goal of the season from midfield.
+
+It was all smiles behind the goal as we expected the Rooks to kick on. But all of a sudden we were behind again. The ball seemed to hit every one of the twenty players in the penalty area, striking a post before Burton nodded it in.
+
+We looked worried. I looked for comfort from Danny Last. He never looks worried. Even when his Non-League bag broke at Cambridge City last season, he didn’t even break into a sweat. But here he was, unable to look me in the eye. “It’s going to be alright, isn’t it Dan?”..”It’s not life or death Stu … Think about next Sunday when we will be at Real Madrid.” All hope was lost.
+
+But then Captain Jack picked the ball up thirty yards out, took a step to the side and leathered it. Can you “leather” a plastic ball? Who knows, who cares? The ball flew into the top corner and we were level. I bloody love Jack Walder. We would take a draw, back to our place on Tuesday night where we could bring our Harvey’s onto the Jungle.
+
+Two minutes left. The ball is thrown into the Magpies box and it strikes an arm…Penalty? No????? Yes!!!!! Peacehaven’s players know it is game over. Dixon steps up and scores his second.
+
+“Come on lino…how much time is your mate adding?” Finally we can look from behind our hands. We’ve won. The road to Wembley starts for us all with a first step, and we’ve just made ours, three thousand pounds richer.
+
+Hats off to our hosts – this was why the FA Cup is so special. To the dream? To the pub, to discuss who we want out of the hat on Monday morning.
+
+Words &amp; Pictures: Stuart Fuller at [The Ball Is Round](http://theballisround.co.uk/) – [@theballisround](https://twitter.com/theballisround)

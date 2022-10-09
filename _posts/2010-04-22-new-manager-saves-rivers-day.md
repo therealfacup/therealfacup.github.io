@@ -1,0 +1,58 @@
+---
+id: 2112
+title: 'New Manager Saves River&#8217;s Day'
+date: '2010-04-22T23:37:06+01:00'
+author: 'Simon Barnett'
+excerpt: 'Sitting in the bottom three, five games without a goal and a new manager - could River Plate take anything from a game with table-topping Godoy Cruz? Our bread and butter is, as I''m sure you''re aware by the name of the site, the FA Cup.'
+layout: post
+guid: 'http://therealfacup.co.uk/2010/04/22/new-manager-saves-rivers-day/'
+permalink: /2010/04/22/new-manager-saves-rivers-day/
+has_tweeted:
+    - '1'
+categories:
+    - 2009-2010
+    - 'Match Report'
+    - 'South American Football'
+---
+
+Our bread and butter is, as I’m sure you’re aware by the name of the site, the FA Cup. The world’s greatest cup competition begins to lose some of its shine around the turn of the year however and so I chose this time of year to finally see some of the world before my life officially moves into middle-age. Inevitably, I’ve missed The Beautiful Game since I’ve been away so when I arrived in Argentina I insisted on a visit to an Argentinian league game.
+
+The two giants of Argentinian club football, Boca Juniors and River Plate never play at home on the same weekend and since I was only in town for one weekend it was River Plate who would provide my football fix after four months without going to a game.
+
+Both River and Boca are having a troubled season.
+
+Boca are experiencing the usual in-fighting which seems to plague a lot of South American clubs – the main rivalry being that between aging midfielder Riquelme, who has famously retired from the national team after falling out with Maradona, and the even more aged striker Martin Palermo who will turn 37 later this year.
+
+River have had an even worse time. Languishing in the bottom three after a run of only 1 point from 5 games, including a 2-0 defeat in the Superclasico at La Bombonera, they had managed an incredible 425 minutes without a single goal (a serious crime in this part of the world) and chairman Daniel Passarella had sacked the manager after their previous result, a 0-0 draw in Tucuman and appointed ex-Huracan manager Angel Cappa to try and steady the ship. Whilst it is well-known that an injection of energy, confidence or just plain fear from a new man at the helm can often bring about surprise results, could they really compete with table-topping Godoy Cruz?
+
+Our arrival at River’s stadium was met with hordes of riot police, there to prevent the away supporters, who had travelled for more than 20 hours from their home town in Mendoza (something they do 15 times a season as two-thirds of the teams in the Argentinian Primera Division are based in the capital city!), from making any contact whatsoever with the home fans.
+
+A body search or two later and we chose a pair of seats on the Platea, the more expensive area of the ground on the middle tier. The hard core of supporters at both Boca and River are located on the open terraced upper tier and they were already there in force, despite their side’s lowly position in the league. Every inch of the stadium was covered in banners apparently stating the district from which the supporters standing originated from – a practice which conveniently hides the fact that without them, there is only the word ‘Petrobras’ (a petrol company) repeated again and again in dirty grey around the aging edifice, built for the 1978 World Cup and apparently not updated since. The ground is a real throw back to how stadiums in England used to be, with toilets consisting of graffiti’ed walls over troughs awash with urine and seats made of metal slats bolted on to old stone terraces. There are 10ft wire mesh fences topped with barbed wire to keep the fans off the pitch and, to complete the effect, several members of the local fire brigade stand on the running track in front of the home fans, ready to fire jets of water at the first sign of any misbehaviour from the penned-in hooligans.
+
+[![Loyal River Plate Fans](http://therealfacup.co.uk/wp-content/uploads/2010/04/CIMG2734-300x225.jpg "Loyal River Plate Fans")](http://therealfacup.co.uk/wp-content/uploads/2010/04/CIMG2734.jpg)The 40,000 or so home fans were either excited by the prospect of the new manager or are tremendously loyal to their team, even in dire circumstances, for they were in fine voice in the lead up to the kick off and it certainly seemed to inspire the players as River started the game extremely well and within 2 minutes had the ball in the back of the net only for the goal to be ruled out for offside. River hassled and harried, giving the leaders no time on the ball, causing them to make mistakes and continued to create chances.
+
+The atmosphere turned a little sour after 10 minutes when the referee refused to give a penalty for a blatant push on the edge of the six yard box just as the striker was about to pull the trigger. Cries of ‘hijo de puta’ rang out around us – ‘son of a bitch’ is the Argentinian equivalent of ‘the referee’s a wanker’ it would seem.
+
+Even more chances came and went for the home side as they virtually laid siege to the opposition goal, attacks coming from both wings as the Godoy full backs were outsmarted and outpaced on a regular basis. A looping header only narrowly missed the top right hand corner and a free kick from just outside the penalty area was wasted after the flying River winger was scythed down by the panicking right back, earning him an early yellow card. Another penalty was turned down by the referee as a River player was kicked in the chest by a flying defensive boot. Godoy were struggling to contain the constant wave of attacks and every mistake they made was greeted with superb shouts of ‘Burro’ (Donkey) by the vociferous supporters around us – a tradition I shall be trying to replicate at home when I get back.
+
+[![River Plate v Godoy Cruz](http://therealfacup.co.uk/wp-content/uploads/2010/04/CIMG2743-300x225.jpg "River Plate v Godoy Cruz")](http://therealfacup.co.uk/wp-content/uploads/2010/04/CIMG2743.jpg)
+
+The chances were coming thick and fast and an excitable little girl two rows in front of us had to be told to sit down by the man sitting behind her so that he could see the action. River had done all they could – apart from score. Somehow you knew what was coming.
+
+How many times have we seen a struggling side create chance after chance against superior opposition, only to go a goal behind to the first chance that the better team creates? Lots of times, that’s how many. The River left back was getting carried away and was way out of position when a Godoy break down the right was squared into the centre for a fairly easy tap in for Higuain. The large contingent of away supporters in the top tier of the stand opposite signalled their approval and there was much shaking of heads around us. Football may be slightly different in foreign countries but some things are the same the world over and these people had seen it all before. It was a real shame – River had nothing to show for all their efforts, and they had been punished as off-form teams tend to be when playing top teams.
+
+The goal had the usual effect in these circumstances and River struggled to regain their dominance for the remainder of the first half, looking understandably resigned to their fate after giving it their all.
+
+Argentinian football at the top level is in a pretty poor state judging by what I’ve seen whilst I’ve been here. Their best players are spirited away by rich European clubs and refer years of government corruption has led to under-investment in facilities meaning that vital things like the pitch are in a dreadful condition, giving rise to some dreadful first touches. During half time my other half, who knows very little about the game, summed it up by saying “one or two of these players have their moments, but sometimes they seem surprised to see where the ball has gone when they kick it”. Couldn’t have put it better myself!
+
+The second half continued in much the same vein until, on 57 minutes, River brought on the promising 22 year old Diego Buonanotte, who was involved in a car crash last year in which three people died and has somehow managed to return to the side after only a few months. His presence seemed to breathe a little bit of life back into the home side and, with Godoy beginning to get their act together, the game was much more finely balanced than it had been. The crowd was still very vocal and both they and the team were rewarded on 68 minutes when Buonanotte wriggled his way along the byline and poked the ball past the Godoy keeper along the edge of the six yard area for 36 year old Ariel Ortega to tap into the empty net.
+
+The stadium was still jumping less than two minutes later when an abject pass back from a Godoy midfielder was overhit into the space behind the left back and Ferrari sped onto the loose ball, terrified everyone by dribbling way out to the left of the keeper before tucking in from a narrow angle to make it 2-1! No-one could believe what they were seeing and the place went berserk. A chorus of (the equivalent of) ‘We Love You River Plate’ broke out almost immediately and some superb rhythmic jumping caused the stand to actually bounce up and down with joy along with all of its occupants, making us wonder about the quality of late 1970’s Argentinian engineering.
+
+<object classid="clsid:d27cdb6e-ae6d-11cf-96b8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=6,0,40,0" height="344" width="425"><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><param name="src" value="http://www.youtube.com/v/sH-BheP5zMg&hl=en&fs=1"></param><param name="allowfullscreen" value="true"></param><embed allowfullscreen="true" allowscriptaccess="always" height="344" src="http://www.youtube.com/v/sH-BheP5zMg&hl=en&fs=1" type="application/x-shockwave-flash" width="425"></embed></object>
+
+Somehow River not only managed to hold on, they nearly scored a third and Godoy were sent home having been knocked off the top by a struggling team with a new manager who hadn’t scored for more than 8 hours.
+
+It is customary in these parts for the home fans to be kept in at the end until the visiting supporters have been escorted onto the motorway rather than the other way around so we had to wait around for a good 15 minutes at the end but nobody minded tonight. River had gone above their mortal enemies, Boca and, more importantly, they have a brilliant new manager who has changed things around in less than a week.
+
+Everything is going to be fine!

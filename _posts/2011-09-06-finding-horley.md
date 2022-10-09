@@ -1,0 +1,120 @@
+---
+id: 5335
+title: 'Finding Horley'
+date: '2011-09-06T20:25:31+01:00'
+author: 'Juliet Jacques'
+excerpt: 'Juliet Jacques travels from Horley to Horley, returning for FA Cup football and maybe finding something, among the horribly familiar, she''d never encountered before.'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=5335'
+permalink: /2011/09/06/finding-horley/
+'Author Name':
+    - 'Juliet Jacques'
+networkpub_meta_publish:
+    - selected
+networkpub_api_keys_selected:
+    - ''
+networkpub_postmessage:
+    - ''
+networkpub_postsummary:
+    - ''
+networkpub_twitterhandle:
+    - ''
+networkpub_twitterhash:
+    - ''
+networkpub_ogtype_facebook:
+    - ''
+networkpub_post_image_video:
+    - ''
+image: /wp-content/uploads/2011/09/horl-200x100.jpg
+categories:
+    - 2011-12
+    - Comment
+    - Culture
+    - 'FA Cup'
+    - Feature
+    - 'Match Report'
+    - 'Preliminary Round'
+tags:
+    - 'Corinthian Casuals'
+    - 'FA Cup'
+    - 'gender dysphoria'
+    - 'Horley Town'
+    - 'Joy Division'
+    - 'Juliet Jacques'
+    - Nirvana
+    - 'Norwich City'
+    - Oakwood
+    - Smiths
+---
+
+[![IMG_6062.jpg](http://lh6.ggpht.com/-AOLo2X0jfpI/TmZhObDetlI/AAAAAAAAAbE/ZIDxyTm-cjE/h320/IMG_6062.jpg)](http://lh6.ggpht.com/-AOLo2X0jfpI/TmZhObDetlI/AAAAAAAAAbE/ZIDxyTm-cjE/w800/IMG_6062.jpg) Horley Town vs. Corinthian Casuals  
+The New Defence, Horley, Saturday 3 September 2011
+
+My family moved to [Horley](http://en.wikipedia.org/wiki/Horley), on the Surrey/Sussex border and halfway between London and Brighton, in January 1986, when I was four years old. Long before I went to university, I resolved to move to a city – any city – as soon as possible, stifled by small town life and feeling no connection to Horley despite spending the formative years of my life there. I left in spirit long before body, attending college in Horsham as Horley’s only secondary school, Oakwood, had no sixth form. Quickly losing touch with my local schoolmates, I made plenty of friends in Horsham who I still see now, as we all moved to Brighton – the preferred destination for south-easterners who defined themselves in opposition to the prevalent (lack of) culture in their commuter town but wanted to stay close to their families.
+
+This closeness meant that when The Real FA Cup declared that this year’s Preliminary Round trip would be to the famous [Corinthian Casuals](http://www.corinthian-casuals.com/)’ tie at Horley Town, I decided to come too. (This article is entirely about Horley and me: please click here for more on Corinthian Casuals’ fascinating history as England’s leading amateur club.) Despite spending a season on [Horley Town](http://www.horleytownfc.info/)’s books in 1993-1994, before becoming disillusioned with my inability to break into the B-side or relate to my team-mates, I’d never been to watch them play, or indeed ever really socialised in the town. So I returned, to reconsider my relationship with the place I call home and – hopefully – enjoy the football.
+
+[![3294902970-david-mocatta.jpg](http://lh4.ggpht.com/-PhmgsmNFz68/TmZpB98SU_I/AAAAAAAAAdk/QLuMjpho-lk/h320/3294902970-david-mocatta.jpg)](http://lh4.ggpht.com/-PhmgsmNFz68/TmZpB98SU_I/AAAAAAAAAdk/QLuMjpho-lk/w800/3294902970-david-mocatta.jpg) I didn’t realise in my youth but Horley, and Horley Town, were trying to find themselves as much as I was. Originally a village, Horley did not appear in the Domesday Book but is thought to have been included in the northern manor returns. It had a population of under a thousand in 1812 but the opening of its first railway station in 1841 (designed by architect [David Mocatta](http://en.wikipedia.org/wiki/David_Mocatta) and demolished in the Sixties by [Dr Beeching’s reforms](http://news.bbc.co.uk/onthisday/hi/witness/march/27/newsid_4339000/4339761.stm)) meant its population grew to 8,000 over the next century, as Horley suddenly offered equally easy access to the capital and the coast.
+
+The population grew much faster as Horley became a dormitory for Gatwick Airport, which became a continental airport in 1936; in 1974, what were once three hamlets around a Common was granted town status. Horley FC, formed in 1896 and merged with Gatwick Rovers twelve years later, added ‘Town’ to its name, still playing in the claret and blue they adopted in 1912. It was this claret and blue which I wore during my brief dalliance with the hyper-masculine world of organised football with the Horley Town Minors, who, like me, were born in the early Eighties.
+
+As a child with ‘[gender dysphoria](http://www.nhs.uk/conditions/Gender-dysphoria/Pages/Introduction.aspx)’ (basically, a sense that I was born in the wrong body), I had a love/hate relationship with football, loving the sport but loathing the culture around it. I soon gave up on playing for a club: I was keeping my gender issues secret, terrified of what might happen if my friends, family and schoolmates found out about them, and although my team-mates knew nothing of my transsexual wishes, I knew that these more than anything drove a wedge between them and me. Consequently, I was introverted off and on the pitch, reluctant to pass to them and finding that they refused to give the ball to me – desperate to prove myself, I wasn’t good enough on the ball to win them over, and I soon left, choosing to watch rather than play competitive football.
+
+[![0,,10355~3281559,00.jpg](http://lh5.ggpht.com/-7WAS_Sf-Tno/TmZqk6ObZ3I/AAAAAAAAAd8/1n5jFr2tuNA/h320/0%25252C%25252C10355%25257E3281559%25252C00.jpg)](http://lh5.ggpht.com/-7WAS_Sf-Tno/TmZqk6ObZ3I/AAAAAAAAAd8/1n5jFr2tuNA/w800/0%25252C%25252C10355%25257E3281559%25252C00.jpg) My parents didn’t push me into supporting anyone in particular, and Horley were too far from being a League team to capture my imagination. [Recent FA Cup finalists Crystal Palace](http://www.thefa.com/TheFACup/FACompetitions/TheFACup/History/HistoryOfTheFACup/1990ManchesterUnitedCrystalPalace) were the logical option, but Selhurst Park was just too distant for me to attend regularly, and I inexplicably picked Norwich City – a traditionally less successful side from an area with which I had no links. This choice became central to my identity, as there were no other Norwich fans in my year at school (though Jeremy Goss’s nephew, who had [a great reason to support City](http://www.youtube.com/watch?v=L4Ql6oD2ukU), was in the year below) but without the spatial and spiritual connection to my local community that, for many, is a crucial part of supporting a team. So, besides occasional six-hour round trips to Carrow Road with my obliging father, I decided to explore interests – particularly music.
+
+My few friends at Oakwood shared my animosity towards the town, exemplified by the laughably insignificant stories on the front of the Horley Life that I delivered on my paper round. (Personal favourites included the summer-long story about poor paving in the town centre, or the flurry of indignant missives published after Horley was nominated as the dullest place in Surrey.) We all liked the line of music that came after punk, dealing with boredom, frustration and alienation (although I preferred The Smiths and Joy Division to Nirvana and Oasis, making me an outsider yet again), and the one thing in Horley that I loved was Pulse Records, the wonderful independent store that kept afloat by flogging chart CDs to Oakwood pupils walking home from school, which subsidised them selling [Mark Stewart and the Maffia](http://www.headheritage.co.uk/unsung/review/316) LPs to me for a fiver apiece.
+
+[![pulselogo.jpg](http://lh6.ggpht.com/-TObv0ZlHK2Y/TmZrduNZaHI/AAAAAAAAAeU/dGKBznr1Q7c/h320/pulselogo.jpg)](http://lh6.ggpht.com/-TObv0ZlHK2Y/TmZrduNZaHI/AAAAAAAAAeU/dGKBznr1Q7c/w800/pulselogo.jpg) Whilst I would go anywhere – London, Brighton, Crawley, Horsham or even Gatwick Airport in search of something to do – I realised that Horley’s smallness meant that chain stores and corporations had not monopolised the town centre. We had lots of charming little shops besides Pulse, run by people who genuinely cared about what they sold, until Tesco in Hookwood, just outside Horley, began stocking popular CDs, books and everything else at discount prices, and the combination of that and the Internet gradually closed most of them down. Now Horley’s main thoroughfare, Victoria Road, is dominated by charity shops – and Europe’s largest Waitrose, which the supermarket chain recently opted to open here, perhaps because they knew that middle class families in the nearby towns and villages would come and fill their Range Rovers with expensive groceries, every week for the foreseeable future.
+
+A Waitrose, however big, was not enough to keep me in the town, and so I moved to Manchester, attracted by its alternative music heritage and the gay scene around Canal Street, with its drag bars and lively clubs. There, I found that I constantly had to explain where Horley was – near Gatwick, Crawley or Brighton – and as a result, nobody ever really remembered where I was from. When I first returned there from university, I bought the lone copy of the Guardian from my local newsagent on Horley Row: the vendor turned sideways and suspiciously asked “Intellectual?”, reminding me that this was not a place that dealt easily with any kind of “difference”. Indeed, there had been much soul-searching a year or two before, when the council built a gazebo in the Recreation Ground, and within days someone scrawled ‘No Gays’ across its side.
+
+So I felt justified in leaving for Manchester and then Brighton, where I explored my cultural, sexual and gender interests and became myself – which included transition from male to female (I’ve written about that [here](http://www.guardian.co.uk/lifeandstyle/series/transgender-journey)). This was the first time I’d returned (except for going straight from Gatwick Airport to my parents’ house and back) as Juliet: on the train from Brighton, all my old anxiety about familiar faces seeing me wearing women’s clothes in this small, twitchy town, with its numerous WASP-ish churches and net curtains, came flooding back. Then I recalled how the girl over the road told everyone that she’d seen me cross-dressing and I got an angry call from a ‘friend’ forcing me to deny it, but luckily this happened after I’d left school and distanced myself, socially if not yet geographically. Then, I realised, the sky didn’t fall on my head, and surely I’d outgrown these concerns by now. If I bumped into someone I used to know – what was the worst that could happen?
+
+\*
+
+[![IMG_6159.jpg](http://lh4.ggpht.com/-kdTldoRm6eM/TmZiqtarkoI/AAAAAAAAAbo/4AO-InlMyd8/h320/IMG_6159.jpg)](http://lh4.ggpht.com/-kdTldoRm6eM/TmZiqtarkoI/AAAAAAAAAbo/4AO-InlMyd8/w800/IMG_6159.jpg) I meet Damon at The Black Horse – my local, and typical in that it’s faintly picturesque with utterly conservative décor and food. It’s on Horley’s edge, practically in Hookwood, and arriving from Gatwick, I’ve avoided the town centre again. He’s an Ipswich fan, so we have some friendly exchanges about our clubs’ rivalry before I share what I know about football in Horley. The club’s most celebrated ex-player is [Nicky Forster](http://en.wikipedia.org/wiki/Nicky_Forster), who joined Gillingham in May 1992 and had a successful career with various League sides, including Ipswich, before returning to local football with nearby Lingfield.
+
+The following summer, as I went into Horley Town’s B team, the first XI beat Manchester United’s Under 12s in a friendly, 2-1. There was a fight as United’s youths couldn’t believe they’d come all this way to lose to these hillbilly hicks from the swanky south-east: I wondered, then and now, if the visiting players would have been so aggrieved if they’d known that most of the Horley team supported Manchester United.
+
+It’s weird that having gone to major cities to find counter-culture and safe spaces for people of diverse sexualities and/or genders that I’ve come back to find an alternative to the commercialised, corporatised Premier League. The previous weekend, I’d watched Norwich at Chelsea, a short walk from the Kings Road that fostered the punk rock that I loved, and experienced all I hate about top flight football: all-seater stadia without atmosphere; odiously entitled ‘stars’ earning a hundred grand (or more) a week, bankrolled by a foreign plutocrat with no real connection to the club or its fans; and having to pay £47.50 to see a contest that I knew to be ludicrously unequal (further thoughts on that [here](http://europeanfootballweekends.blogspot.com/2011/08/chelsea-v-norwich-city.html) for European Football Weekends). In this world, Horley offered a refreshing counterpoint.
+
+[![IMG_6068.JPG](http://lh5.ggpht.com/-ZmSB-VL2Pzk/TmZhYCeevEI/AAAAAAAAAbI/0ZZ4jZFQs5M/h320/IMG_6068.JPG)](http://lh5.ggpht.com/-ZmSB-VL2Pzk/TmZhYCeevEI/AAAAAAAAAbI/0ZZ4jZFQs5M/w800/IMG_6068.JPG) We enter The New Defence, Horley’s home ground, at ten to three on a Saturday afternoon – which in itself feels like a welcome contrast, until I remember that Norwich and Chelsea kicked off at the same time. Horley moved here in September 2003: there is still building work next to the clubhouse, which doubles as a stand seating 130 people. The previous ground, on Smallfield Road, was built on land donated by Major Jennings, later club president, in 1947, and named The Defence in memory of those who died serving their country in the two world wars. Indeed, the oldest man killed in the First was from Horley: [Henry Webber](http://www.horleyhistory.org.uk/horley-personalities.html), who died at the Somme in July 1916, aged 68, having persuaded the Army to let him take his personal cavalry unit to fight amidst the shells and tanks at No Man’s Land.
+
+[![IMG_6078.JPG](http://lh3.ggpht.com/-_9PUvcSVBIc/TmZhhf2zONI/AAAAAAAAAbM/fkj4-5sDwco/h320/IMG_6078.JPG)](http://lh3.ggpht.com/-_9PUvcSVBIc/TmZhhf2zONI/AAAAAAAAAbM/fkj4-5sDwco/w800/IMG_6078.JPG) I see that Horley’s chairman lists his phone number (something ex-owner Robert Chase never dared at Norwich) in the programme, which bills the opposition as ‘Corinthean Casuals’ several times – twice on the cover. On the back, as if to taunt me, there’s an advert showing cheating ex-scummer Danny Haynes, whose handball won an East Anglian derby for Ipswich in February 2006 in their colours, contrasting with the two young boys sat behind the goal in full Horley Town kit. Pete the Drummer stands just behind them, sporadically tapping a drum tied to the barrier – besides Lol Tolhurst of The Cure (associated with hated rival town Crawley), DJ Luke Slater and jazz composer Dick Morrissey, he may be Horley’s most famous musician (my own attempts at punk bands went nowhere). Inside the programme, there’s an advert for Cherry Red Records, who sponsor the Combined Counties League in which Horley play. It references the Dead Kennedys, Nico, Ivor Cutler and other counter-cultural luminaries – infinitely preferable to Ipswich reject Haynes.
+
+[![IMG_6084.JPG](http://lh3.ggpht.com/-HSAcx9Gxtjw/TmZh6BpYTmI/AAAAAAAAAbQ/LGlnjLCfSUI/h320/IMG_6084.JPG)](http://lh3.ggpht.com/-HSAcx9Gxtjw/TmZh6BpYTmI/AAAAAAAAAbQ/LGlnjLCfSUI/w800/IMG_6084.JPG) There are other non-League staples: a man with dogs (who don’t wear Horley scarves); a linesman who resembles Father Jack, who sadly doesn’t attempt to settle any offside disputes by saying that they would be an ecumenical matter. There are various hoardings, advertising local takeaways like Spice Boys besides Subway and, of course, Waitrose.
+
+We perch alone in the corrugated iron stand, with no seats, behind the goal, with Horley shooting towards us. As Horley kick off, Damon notices planes landing overhead – something entirely unremarkable to me. The Clarets make the early running: I instinctively yell “Come on Horley!” as Town fire over the bar, the ball landing on the stand’s roof with a loud thud. Casuals goalkeeper Danny Bracken says “Cheers mate” as Damon returns it: Bracken launches an attack, and Glenn Boosey’s shot from the left beats Horley keeper Ian Chatfield, bounces off the inside of the post and is cleared, to the relief of Pete and his family, the dog owner and me. Minutes later, I turn after winger Adam Pullen’s cross produces a good chance and say “We could have scored there!”
+
+[![IMG_6087.JPG](http://lh3.ggpht.com/-3wEqyVA2LxQ/TmZh6nASHmI/AAAAAAAAAbU/pTKIg_R42c4/h320/IMG_6087.JPG)](http://lh3.ggpht.com/-3wEqyVA2LxQ/TmZh6nASHmI/AAAAAAAAAbU/pTKIg_R42c4/w800/IMG_6087.JPG) “We?” says Damon.  
+“Yeah,” I reply, “we”, temporarily forgetting how much I’ve slated the town over the years. “I played for this club, I’m saying we.” I pause. “Anyway, I hate the Premier League. Fuck Norwich,” I joke, maturely reminding Damon of which of our clubs is currently best placed.
+
+After seventeen minutes, Pullen finds striker Kyle Hough, who reminds me of my favourite current Norwich player, ex-Non-League centre-forward Grant Holt: matching Holt for strength and determination, Hough races through, beats two defenders Bracken and scores from a ludicrously tight angle. Amazingly, Horley are beating the famous Corinthian Casuals, for whom Sócrates once turned out, and who gave Real Madrid their iconic white kit.
+
+[![IMG_6091.JPG](http://lh3.ggpht.com/-Md1RGXIEjHw/TmZiZefbUeI/AAAAAAAAAbc/PC6AJgMs8jg/h320/IMG_6091.JPG)](http://lh3.ggpht.com/-Md1RGXIEjHw/TmZiZefbUeI/AAAAAAAAAbc/PC6AJgMs8jg/w800/IMG_6091.JPG) As the ball hits the net, a thought strikes me: identity is formed in struggle, in tragic defeats and heroic victories. After the Norman conquest, nearly a thousand years ago, the south-east subjugated first the rest of England, then Scotland, Wales and Ireland before the London-centric United Kingdom imposed itself on America, India, Canada, Australia and many other territories – historically, very few people in the world have been less oppressed.
+
+The lack of struggle explains why the world wars, especially the Second when the south-east formed a bulwark against the German invasion, remain so prominent in the psyche of a nation dominated by London and the Home Counties: the monument in Horley commemorates residents who died fighting, particularly those in the East Surrey Battalion, but I think it’s widely understood that these were national conflicts, not regional ones, and the absence of local struggle and associated mythology, I speculate, means that people searching for a cornerstone to a sense of self prefer patriotism (or nationalism) to regionalism.
+
+[![IMG_6088.JPG](http://lh5.ggpht.com/-pgYJkiAQ9us/TmZiBtGg8uI/AAAAAAAAAbY/GprrprCVrk0/h320/IMG_6088.JPG)](http://lh5.ggpht.com/-pgYJkiAQ9us/TmZiBtGg8uI/AAAAAAAAAbY/GprrprCVrk0/w800/IMG_6088.JPG) It also suggests why people in larger commuter towns that can produce top flight or competitive sides – for example Reading, Watford, briefly Oxford United in the Eighties and after – become so attached to their local teams, with football offering a narrative where they, finally, are the underdogs, and where they can take on ‘bigger’ teams from the Northern cities or London districts (who did much worse than they did under Thatcher) and memorably overcome them. Perhaps I didn’t form any affiliation with Horley despite playing for them as our team used to lose heavily every week (and I was rarely picked). If I’d played for the more successful first XI, it may have been different, and I may not have made my transsexuality, my cultural interests or even my left-handedness more central to my identity than the place where I lived.
+
+[![IMG_6119.JPG](http://lh6.ggpht.com/-fOpec86FXoQ/TmZibxBAzmI/AAAAAAAAAbk/-JIlnXL1xf8/h320/IMG_6119.JPG)](http://lh6.ggpht.com/-fOpec86FXoQ/TmZibxBAzmI/AAAAAAAAAbk/-JIlnXL1xf8/w800/IMG_6119.JPG) I returned my mind to the match. Horley hold on against the Ryman League team – just one division above them in the pyramid but above them nonetheless – until just before half time, when Boosey equalises. The two boys behind the goal catch Bracken’s attention.  
+“Was that a goal?”  
+“Yes,” says the visiting goalkeeper.  
+“What’s the score?”  
+“1-1” replies Bracken, trying not to lose patience with them.  
+“1-1 to who?” asks the boy, and Bracken turns away.
+
+Having seen football fans at every League ground I’ve been to yell “You’re shit, ah!” at every goalkeeper in the hope that it’ll make him shank his kick to their side’s centre-forward, without it ever working, I wonder if the direct conversation made possible by the scale of The New Defence has resulted in the Casuals number one being out-psyched by a single child. Immediately, Horley attack: there’s a melee in the box, Hough shoots, Bracken saves, the rebound bounces back to Hough and he finishes – 2-1, right on half-time!
+
+[![IMG_6142.JPG](http://lh3.ggpht.com/-_5Rge0dRF38/TmZibo02D1I/AAAAAAAAAbg/m7IOANv0pLI/h320/IMG_6142.JPG)](http://lh3.ggpht.com/-_5Rge0dRF38/TmZibo02D1I/AAAAAAAAAbg/m7IOANv0pLI/w800/IMG_6142.JPG) We drink in the clubhouse, watching the second half kick off from there. Casuals have a succession of corners, pushing hard for an equaliser, but with about twenty-five minutes left, Hough breaks, shoves past a defender and scores again. I’m sure the referee won’t allow it, but he points to the centre circle, Hough has his hat-trick and Horley are two goals clear. From there, it’s surprisingly comfortable: Casuals offer little (one shot is met by a spectator with “Mind my car!”), and Horley defend resolutely, with substitute Darren Tidy looking particularly skilful. So we – we – win to set up a First Qualifying Round tie against Dulwich Hamlet, another club with a proud amateur footballing history.
+
+So we walk back through the town centre, past the churches, charity shops and cafés, to the station. As it happens, I don’t see any familiar faces, and by now I don’t care if I do. In any case, the town has changed: I tell Damon that the other famous player from Horley is Faye White, who was a few years above me at Oakwood and who captained England as their improving fortunes helped to popularise women’s football across the country. And there are now two nightclubs: besides Liquid Lounge on Consort Way, which had numerous names during my teens, there’s also Bar 429, which recently opened on the same street, selling itself as ‘Gatwick area’s only gay venue – homo, hetero, metro, whatever’.
+
+I don’t think I’ll be coming back to Horley for Bar 429 – I can take or (more likely) leave its combination of ‘commercial house and handbag’ – but I can’t wait to return to see the Town take on the Hamlet.
+
+**[Juliet Jacques](http://twitter.com/#!/julietjacques) is the author of [Orwell Prize longlisted](http://theorwellprize.co.uk/longlists/juliet-jacques/) Guardian blog ‘Transgender Journey’. She also covers European literature, experimental film, art, music &amp; (usually French) football on her [blog](http://julietjacques.blogspot.com/).**
+
+All photos therealfacup, except:  
+David Mocatta plaque courtesy [www.djibnet.com](http://www.djibnet.com)  
+Jeremy Goss courtesy www.canaries.co.uk  
+Pulse Records Logo courtesy [www.pulserecords.co.uk](http://www.pulserecords.co.uk/index.php)

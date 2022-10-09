@@ -1,0 +1,44 @@
+---
+id: 7830
+title: 'Fascism, Racism And The FA Cup'
+date: '2013-02-12T18:31:37+00:00'
+author: 'Simon Barnett'
+excerpt: 'Scott Knowles wonders why some seem to think that the FA Cup needs reforming after enjoying Macclesfield Town''s FA Cup run.'
+layout: revision
+guid: 'http://therealfacup.co.uk/2013/02/12/7815-revision-11/'
+permalink: /2013/02/12/7815-revision-v1/
+---
+
+**Scott Knowles wonders why some seem to think that the FA Cup needs reforming after enjoying Macclesfield Town’s FA Cup run.**
+
+Picture the scene.
+
+Your lowly (read: humble) non-league team has just defeated the side top of the second tier of English football to reach the fourth round of the FA Cup for the first time in its 139 year history. The draw for the next round is made. A former goalkeeping hero has just clawed your ball from the midst of the machine thus handing you a home tie. The tension builds. The (other) former goalkeeping hero reaches down into the belly of a beast that still contains the likes of the Manchester’s United and City, Chelsea, and Liverpool and comes out clutching within his paw a ball that signifies a rather momentous occasion in the entire history of your club. A pause. The number is read out. It belongs to Wigan Athletic. A groan emanates from your lowly (read: humble) town that rises slowly and sadly and hangs somewhere around the region of the peak district like a stale fart in a duvet.
+
+Poor old Wigan Athletic. They have been a top flight side for almost a decade now and yet remain the sort of team that barely exert any excitement from the fans of lowly teams drawn to play them in cup competitions. Why is that? Is it the stigma of being an unfashionable northern club who as recently as 1997 were playing in the leagues lowest division to crowds of no more than 2,000? Perhaps it is more to do with the sides who were still available to be drawn – like appearing on TV quiz Bullseye and coming away with a pocket television when you could have had a car or a speedboat?
+
+Macclesfield had already contributed their fair share of ‘shocks’ by getting as far as they had. A first round win away at “fascism sympathisers” Swindon Town was not exactly on the cards – the two sides had met as equals in League Two the season prior but fortunes had treated them differently since and they now found themselves two divisions apart. The smart money was on victory for Di Canio’s Robins but a wonder strike from Tony Diagne and a last minute own goal eased the Silkmen into the Second Round where they were drawn away once more, this time at fellow Blue Square Bet Premier team Barrow.
+
+By the time that tie finally took place (it was twice postponed due to a frozen pitch) the reward for the victors had already been decided – a visit from Championship high-fliers Cardiff City. A 1-1 draw at Holker Street was marred by claims of racism from a small section of the home support aimed towards Macc captain Nat Brown and the replay saw further claims of a similar nature, this time by full-back Ryan Jackson, allegedly from a Barrow player.
+
+Following the game Macc chief executive John Harris issued a statement declaring that Macclesfield Town are “..staunchly opposed to all forms of racism, which we believe has no place in football, or indeed anywhere.”, seemingly oblivious to the small but vocal pocket of EDL supporting racists who gather each home game on the terraces at Moss Rose.
+
+With Barrow disposed of, it was time to welcome Cardiff and a tie that contained the sort of drama that the FA Cup prides itself on. Though Malky Mackay chose to rest pretty much his entire first team it was still the away side who took the lead midway through the second half through Nathaniel Jarvis. That goal seemed to have been enough to scrape Cardiff into the next round until a frantic final five minutes when Macclesfield struck twice, both goals coming from top scorer Matthew Barnes-Homer, to make history for the Cheshire side.
+
+At the final whistle the oft-criticised Silkmen boss Steve King soaked up some rare adulation from the home crowd with tears clearly visible in his eyes. It seemed he had finally been accepted after a rocky opening few months at the helm where some fans had continually questioned his commitment to the cause and ability to do the job.
+
+Type “Wigan play good football” into Google and you get twenty two thousand results. Replace “good” with “attractive” and you get little over a thousand. Replace “attractive” with “sexy” and you get a sole response (from a Liverpool fan in Singapore). Playing football the “right way” is something Roberto Martinez has become known for but there was little sign of anything attractive or sexy from the Latics against Macc as for much of the game they clung on to the one goal lead they attained in just the seventh minute to claim victory.
+
+The goal for Wigan came from the penalty spot after a tackle from Macc’s recent acquisition Thierry Audel that turned clumsy into something of an art-form. On loan debutant goalkeeper Joe Anyon got his hands to the spot kick from Jordi Gómez but couldn’t keep it out. Audel would later fail to make up for his earlier error by heading straight at the Wigan goalkeeper from a Macc corner when a shot either side would have resulted in a goal.
+
+Call it being blinkered with bias but this was a match that Macclesfield for the most part dominated. Even the Wigan manager seemed to accept as much with a glowing appraisal of the home team post-match. “The back four are all happy to get on the ball and get forward and they showed they are an impressive team. I’m sure they are going to be very successful this season; they are creating something special.” (I like Martinez by the way. He has an honesty about him – something that suggests he realises his limitations as a manager and is perpetually surprised to be allowed to continue doing the job that he is. The flat out denial of any interest in taking the vacant post at Liverpool post-Dalglish was akin to somebody refusing to pinch themselves for fear of waking up from a wonderful dream.)
+
+The stats seem to back me up – thirteen shots from the Silkmen compared to Wigan’s five. Five on target compared to Wigan’s one. A strong claim could also be made for Macclesfield having a penalty after Waide Fairhurst was manhandled in the box by Roman Golobart but the level of complaints afterwards – Steve King gave his phone number to the referee so he could call him to apologise after seeing a replay of the incident on TV – seemed over the top considering the Silkmen themselves have benefited from some dubious penalty decisions in the past, not least the deciding goal in the game against Cardiff that had got them through to the Fourth Round in the first place.
+
+So there it was – fascism, racism, a victory over the Championship leaders, and a brave bowing out against an established Premier League side with a maligned manager achieving some sort of redemption along the way. The perfect FA Cup run in some ways. Full of controversy and drama and punctuated with moments of Pure Unadulterated Joy.
+
+This season has seen yet more articles from tedious fans of top tier sides calling for reform of the FA Cup to make it relevant again. They really don’t understand. Their view of the success of the competition is based solely around how seriously the manager of their team takes it (Bebe is given a starting place? The FA Cup is doomed and should be marched out back and shot directly through the back of the head and then set on fire just in case). No thought is ever given to the stories that take place in earlier rounds from these people who presumably think the FA Cup begins in January and ends when their team is disposed/wins the bloody thing. The calls by these fans for the winner of the FA Cup to be granted a Champions League place is perhaps the most depressing acceptance that the sport is now ruled by money of all – no longer is winning the oldest association football competition in the world enough – it now has to have the reward of a place at the top table of European football so it can hobnob with the likes of Platini and his ilk before it becomes relevant again.
+
+The win for Luton over Norwich and subsequent placing in the last sixteen of the competition is exactly what was needed. Like Bradford and their incredible run to the final of the League Cup, Luton are (and I apologise for the overly sentimental language here) carrying the soul of football with them in their journey through the rounds. If they go no further they have already done more than enough. If they do progress to the quarter-final it is exactly what this sport needs.
+
+Let’s all of us get behind them.

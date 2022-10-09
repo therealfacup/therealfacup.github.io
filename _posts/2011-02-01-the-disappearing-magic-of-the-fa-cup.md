@@ -1,0 +1,61 @@
+---
+id: 4201
+title: 'The Disappearing Magic Of The FA Cup'
+date: '2011-02-01T23:00:15+00:00'
+author: 'Stuart Fuller'
+excerpt: 'Just before the transfer window slammed shut, we snapped up the highly sought after young buck, Stuart Fuller, from theballisround for an ''undisclosed fee'' right from under the noses of Chelsea. WIN! West Ham 3 Nottingham Forest 2 was his poison ... '
+layout: post
+guid: 'http://therealfacup.co.uk/?p=4201'
+permalink: /2011/02/01/the-disappearing-magic-of-the-fa-cup/
+image: /wp-content/uploads/2010/09/FootballOPT2-200x125.png
+categories:
+    - 2010-2011
+    - '4th Round'
+    - 'FA Cup'
+    - 'Match Report'
+    - News
+tags:
+    - 'Crowds down'
+    - 'FA Cup'
+    - Gold
+    - Hammerettes
+    - 'Mark Noble'
+    - 'Match Attax'
+    - 'Nottingham Forest'
+    - Sullivan
+    - 'Ticket Prices'
+    - 'West Ham'
+    - 'Winston Reid'
+---
+
+Look around the FA Cup 4th round figures and you will see one stand out fact. [Crowds are crap](http://therealfacup.co.uk/2011/01/12/fa-cup-found-alive-and-well/). Not in every game, but interestingly enough those featuring the Premier League teams. It doesn’t seem enough to slash the already over inflated ticket prices for the games, fans interest in the “World’s greatest cup competition” has waned. May be it’s too much football on TV (Only four of the games this weekend were televised in some form in England on “official channels”, or the fact that the clubs themselves rarely take these early rounds serious enough to warrant the fans attentions.
+
+Back in the day the competition was treated with respect. It was one of the biggest games in a clubs calendar and the fans came out in force. I remember year after year in the 1980’s of West Ham playing in front of near capacity crowds in the 3rd and 4th round of the cup. Yesterday, Everton welcomed Double winners Chelsea to Goodison Park in front of just 28,000 fans, almost 8,000 thousand below their average league attendance. Worse still was the 12,000 who turned up at Molineux for the all Premier League clash with relative local rivals Stoke City. The story was the same at Birmingham City, Aston Villa, Bolton Wanderers, Swansea City and Sheffield Wednesday. It wasn’t all doom and gloom though as crowds well in excess of averages went to Notts County’s Meadow Lane, Southampton’s St Mary’s, Plainmoor in Torquay for the visit of [Crawley ](http://therealfacup.co.uk/2011/01/11/red-devil/)and Stevenage’s game against Reading.
+
+In Germany they apply a rule that the lower ranked team will play at home, and there are no replays. The merits of the latter have been discussed for years although if this would have been the case on Saturday/Sunday it would have avoided the chaotic situation of Chelsea, Wigan Athletic and Manchester City having to host replays on fifth round day due to the FA (the same FA who run the competition) arranging a pointless friendly for England in Copenhagen in the week of the replays. The idea of the home team being the lower ranked would have had a major effect on attendances. Stevenage’s 6,614 on Saturday was their best for many years despite playing a modest Championship opponents Reading. Notts County’s 16,587 for the game against Manchester City will not be far off the crowd at the replay in three weeks time I wager. In total eight ties out of the sixteen ties featured a lower league team playing away. Three won, but would there have been more apart from Crawley Town, Brighton &amp; Hove Albion and Leyton Orient if Hereford United would have hosted Sheffield Wednesday, or Huddersfield Town entertaining Arsenal.
+
+One such game took place at Upton Park where West Ham United prepared to roll over against Nottingham Forest. The 29,000 crowd was actually the second biggest of the round behind the 59,375 at The Emirates and some credit has to go to the club for extending their policy of cheap tickets for home cup games – as long as they are against Championship teams. This was the second successive game in the FA Cup this season and in a bid to get a reasonable crowd through the doors tickets were offered to Members for less than £20. Of course these tickets are relative limited, but being a member I snapped up a couple of seats in the Sir Trevor Brooking Stand, above the away fans who would undoubtedly fill their section and some more.
+
+For some strange reason the game was moved to Sunday at 2pm. Strange because the only games being held in London on Saturday were at Watford, Crystal Palace, Brentford and Barnet yet on Sunday Arsenal were at home as well as Spurs travelling to Fulham. Perhaps it was to give the club time to recover from the disappointment of losing a two goal advantage three quarters of the way through the Carling Cup semi-final on Wednesday night. Perhaps it was to allow Sullivan, Gold and Brady more opportunities to be in the spotlight, as they rarely get the opportunity these days, or perhaps it was to allow the travelling Nottingham Forest fans to experience the “Rail replacement bus service” that had been reserved for the [Brighton &amp; Hove Albion fans the previous day on their way up to Watford](http://therealfacup.co.uk/2011/01/31/brighton-eye-bushey-tale/).
+
+It became obvious when the West Ham team was read out that Avram Grant had taken the opportunity to use his squad. A back four of Jacobsen, Reid, Gabiddon and Ilunga would not have been his first choice, but based on the fact that the Hammers sit at the foot of the Premier League I don’t think they could do much worse that Faubert, Upson, Tompkins, Da Costa, Bridge et al but perhaps it was the opportunity to put them in the shop window on the miracle that someone will come in for them with just 24 hours left of the transfer window. Scoring goals has been West Ham’s problem this season and Grant started with Obinna and the vastly over rated Piquionne upfront, with Freddie Sears, a product of the “Academy” who is still punching above his weight but needs must providing support out wide.
+
+But blow me down with a feather. Four minutes on the clock and Victor Obinna fortuitously stuck out a leg and diverted Mark Noble’s shot into the net past a stranded Lee Camp. This was a rarity for West Ham this season – an early lead and as if no one on the team knew it had really happened they decided to change their game plan to protect the lead. Being bottom of the Premier League gives you a clue that this is something West Ham are not very good at, and it was not surprise when veteran striker Dele Adebola pounced on David McGoldrick’s flick on to level the scored in the 18th minute.
+
+Any neutrals who had pitched up in East London and taken advantage of the “cheap” tickets would have assumed that Forest were the Premier League team in the first forty minutes, with West Ham’s creativity coming from the numerous ways that they lost possession of the ball with such ease. All too often the final ball landed perfectly in space for the ball boys sitting on the East Stand site of the ground rather than the man they were intended for. Winston Reid in particular showed that one great performance in the World Cup can be deceptive. Talking of the “Academy”, on forty minutes ex-West Ham trainee Chris Cohen’s free kick was poorly dealt with in the Hammers penalty area by defenders and goal keeper alike and McGoldrick poked the ball home to put the visitors into the lead.
+
+Lady luck was obviously prepared to give the Hammers another couple of opportunities, first when Obinna’s cross floated over Lee Camp into the net to draw level and then when Forest missed two great chances to take the lead going into half time. Fifteen minutes to try and queue for some overpriced, undercooked, disappointing food is all part of the highpoint of a trip to Upton Park. After the club removed the amusing spectacle of the Hammerettes a few years ago there is little to do at half time anymore. [Sullivan and Gold](http://theballisround.co.uk/2010/07/14/an-open-letter-to-our-beloved-leaders/) had promised “half time entertainment beyond belief” at the start of the season, although so far the highlight of two fans playing Match Attax cards on the pitch against Chelsea had fallen well short of the mark. But did we really believe them? I was mildly disappointed to be honest that we didn’t have a multi-media presentation of how wonderful life will be at the [Olympic Stadium](http://theballisround.co.uk/2011/01/20/getting-a-legacy-up/) … again.
+
+The second half saw the quality on offer improve, which as a spectacle made it less interesting. There is something fatalistic about being a West Ham fan at the moment, knowing that we are simply the twentieth best team in a division featuring clubs that fifteen years ago were in the lower tier of English football. Part of me wants to see us put down, so we can rebuild as we did under Alan Pardew six years ago. But the other part is a loyal fan so when Mr Oliver pointed to the spot after Forest’s Joel Lynch was adjudged to have pulled back Winston Reid I was up on my feet cheering the decision. There was no doubt that Obinna would take the kick, although Noble who is the normal penalty taker was still on the pitch. Who was he to deny the Nigerian a hatrick and he duly obliged, back flipping his way to the touchline in celebration. Neither team seemed willing to push too many men forward after that as both seemed worried about conceding the next goal.
+
+When the liability that is Luis Boa Morte came on for Mark Noble in the 75th minute it marked a turning point for the club. West Ham had just two Englishmen on the pitch. A sign of the times maybe, but as a Hammers fan of thirty years and one brought up on the exciting sides of 1980 to 1986 where the only foreigners were Scots it makes me sad. The so-called Academy is slowly being torn down, replaced by overseas journeymen who lined up on the pitch. And with news filtering through that unused substitute and the nearest the fans had to a “hero” Scott Parker had been subject to a £10million plus bid from Tottenham Hotspurs you had to wonder how many more similar players would be lining up in a week’s time against Birmingham City.
+
+So apart from the usual last minute scares that cup games throw up, West Ham were through into the fifth round. A good omen perhaps that they were then drawn out of the hat first, to play Championship side Burnley in round five, and only two games from an appearance at Wembley. However, few of the home fans could dare to think so far ahead with so many vital league games to play in the meantime. My Forest supporting chum met me outside Upton Park. With games in hand they could grab second spot and may well swap places with the Hammers come what May. “How can you watch THAT every week?” he asked me. “Well that is why I go to Lewes”….
+
+Cheers to [Stuart](http://twitter.com/#!/theballisround) and thanks to his employers [theballisround.co.uk](http://theballisround.co.uk/) for allowing us this brief loan spell. May we point you at least to [this superb piece](http://theballisround.co.uk/2010/08/15/only-13-games-from-wembley/) from the very start of this year’s FA Cup?
+
+————
+
+We have never seen West Ham or Forest as part of our cup journey but we did see the debut of Hammers starlet …
+
+[JUNIOR STANISLAS](http://therealfacup.co.uk/2008/11/29/20082009-2nd-round-proper/)

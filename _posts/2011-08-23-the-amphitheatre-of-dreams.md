@@ -1,0 +1,58 @@
+---
+id: 5124
+title: 'The Amphitheatre Of Dreams'
+date: '2011-08-23T21:54:08+01:00'
+author: 'Dan York'
+excerpt: 'Fisher FC secretary Dan York recalls the former Athletic''s FA Cup journeys and looks forward to a re-invigoration of the dream in historic Chichester.'
+layout: post
+guid: 'http://therealfacup.co.uk/?p=5124'
+permalink: /2011/08/23/the-amphitheatre-of-dreams/
+'Author Name':
+    - 'Dan York'
+image: /wp-content/uploads/2011/08/Fisher-200x100.jpg
+categories:
+    - 2011-12
+    - 'Extra Preliminary Round'
+    - 'FA Cup'
+    - 'Match Report'
+tags:
+    - 'Bristol Rovers'
+    - 'Chichester City'
+    - 'Dan York'
+    - 'FA Cup'
+    - 'Fisher FC'
+    - 'Ian Holloway'
+    - 'Southwark Council'
+---
+
+**[![chi-fish20-8-11_002.jpg](http://lh6.ggpht.com/-Oz2r9_7PfBo/TlQQut-vM6I/AAAAAAAAARs/CwgZiNVCX8E/h320/chi-fish20-8-11_002.jpg)](http://lh6.ggpht.com/-Oz2r9_7PfBo/TlQQut-vM6I/AAAAAAAAARs/CwgZiNVCX8E/w800/chi-fish20-8-11_002.jpg) Chichester City 2 – 2 Fisher FC – FA Cup Extra Preliminary Round, Sat 20th August 2011**
+
+Fisher and Cup Glory have not exactly been regular bedfellows recently. Our recent record in the greatest cup competition in the world is, frankly, atrocious. It seems somehow fitting though, that during the ‘money’ years of the mid to late 2000s, our fun but distinctly unromantic rise through the leagues came with barely an imprint on the FA Cup.
+
+There was one season in those HM Revenue-funded few years where we came close, where cup fever gripped the Fisher faithful, and foil was being hoarded in case a cardboard Cup required decorating for the TV cameras. The 2006-7 season saw Fisher progress through to the 4th Qualifying Round, just one game away from the First Round Proper. After thumping Sittingbourne 7-1 in the 2nd Qualifying Round, the Met Police were dispatched 6-1 in the third. This was it, this was the year. All that stood between the Fish and the big boys of the Football League were Salisbury City. Conference South rivals and fellow big-spenders Salisbury City. And it was the Whites who took the glory, an Aaron Cook goal putting the Fish out of the Cup and putting Salisbury on course for a glamour 2nd Round tie against Nottingham Forest.
+
+[![chi-fish20-8-11_003.jpg](http://lh5.ggpht.com/-1CkHyX6HIGA/TlQQuxXZeNI/AAAAAAAAARw/EDCJLHtZdCA/h320/chi-fish20-8-11_003.jpg)](http://lh5.ggpht.com/-1CkHyX6HIGA/TlQQuxXZeNI/AAAAAAAAARw/EDCJLHtZdCA/w800/chi-fish20-8-11_003.jpg) Two years later, both Fisher and Salisbury were paying the price for ‘living the dream’ – Salisbury in administration and the Fish liquidated. Fisher, left without a ground by our former owner, were reformed as a supporter-owned club and were accepted into the Kent Premier League.
+
+Fisher made the first round proper twice in the 1980s, facing each of the two Bristol clubs once. In 1984-5 the Fish played Bristol City, who featured Keith Curle in their starting line-up, at the Surrey Docks Stadium and went down to a narrow 1-0 defeat. The programme on that occasion featured an advert placed by Southwark Council who used the big occasion to tell the government of the day “Hands off our jobs and services”. Four years later Fisher were back in Round 1 and this time we were drawn away at a Bristol Rovers side whose defence was marshalled by Ian Holloway. Despite the presence of future League striker Ken Charlery in the Fisher ranks, a 3-0 reverse ended our Cup run, and means we are still searching for our first ever goal in the competition proper.
+
+[![chi-fish20-8-11_006.jpg](http://lh4.ggpht.com/-e0D2vfquxcw/TlQQxDavtYI/AAAAAAAAASE/J8vh1-m2N8E/h320/chi-fish20-8-11_006.jpg)](http://lh4.ggpht.com/-e0D2vfquxcw/TlQQxDavtYI/AAAAAAAAASE/J8vh1-m2N8E/w800/chi-fish20-8-11_006.jpg) A trip to Chichester in the Extra Preliminary Round is about as far from the competition proper as it is possible to get, but for Fisher fans the chance to compete in the FA Cup again after two years of enforced absence is enough to make this our most exciting cup tie in a very long time – certainly since that Salisbury game. We’d been hoping for a home draw, of course, for our return to the competition – at this stage, it really is ‘anyone at home’ that you want. But coach trip to the coast early in the season will do wonders for team spirit, and the bond between players and fans, as everyone travels on the same vehicle. And quite right too – the fans are the owners of the club, after all.
+
+[![chi-fish20-8-11_005.jpg](http://lh3.ggpht.com/-BEl_ohZcYfI/TlQQwiyQtMI/AAAAAAAAAR8/NXm0RFGnt6w/h320/chi-fish20-8-11_005.jpg)](http://lh3.ggpht.com/-BEl_ohZcYfI/TlQQwiyQtMI/AAAAAAAAAR8/NXm0RFGnt6w/w800/chi-fish20-8-11_005.jpg) Setting off in bright sunshine on Saturday morning, the mood in the Fisher camp was buoyant following Tuesday night’s 6-2 win away at Greenwich Borough. Our coach driver took us on a tour of the backstreets of South London, and did a creditable job avoiding any traffic hold-ups. A quick stop on the A3 to allow the players to eat their pasta lunch, and we were back underway. Persistent rain had the travellers wondering just how much cover would be available at the ground, but as we approached the cathedral city of Chichester the clouds gave way to beautiful clear blue skies and blazing sunshine.
+
+Chichester is sited on a Roman settlement, and the remains of a Roman amphitheatre can be seen in one of the city’s parks. Today, the city is an attractive place to visit and has clearly tried to maintain a sense of individuality in the city centre. The Fisher fans decamped to the George and Dragon Inn for some pre-match ales, and were surprised to find a young flautist busking in a subway – we were not in South London any more!
+
+[![chi-fish20-8-11_001.jpg](http://lh4.ggpht.com/-NIs4cUrYqCo/TlQQvPHXgoI/AAAAAAAAAR0/t_LOEoHMWlo/h320/chi-fish20-8-11_001.jpg)](http://lh4.ggpht.com/-NIs4cUrYqCo/TlQQvPHXgoI/AAAAAAAAAR0/t_LOEoHMWlo/w800/chi-fish20-8-11_001.jpg) Suitably refreshed, we returned to City’s Oaklands Park ground. Set amongst a well appointed leisure centre, the ground has clearly seen a lot of recent work and boasts an excellent new clubhouse with good facilities for players and fans. The sun continued to shine – a good thing too, as cover was limited. A small stand on one side of the ground was complemented by some wooden benches on the terrace opposite – a vantage point favoured by a group of gentleman who had clearly been following Chichester’s fortunes over a number of years. The travelling support gathered behind the Chichester goal in the hope of seeing the net bulge on a regular basis.
+
+The game started with both sides looking to get the ball down and play, but it was Fisher who struck first when striker Danny Hunt netted his fourth goal of the season, seizing on a through-ball from Jamie Turner and finishing right-footed past Richard Boyle in the Chichester goal. But Chichester, who had lost their opening two league fixtures at home, struck back as Fisher struggled to reorganise after Hunt was forced off with a thigh strain. Michael Turvey pounced on a loose ball in the box to put the home side on level terms.
+
+[![chi-fish20-8-11_007.jpg](http://lh4.ggpht.com/-vG-B-GecI0c/TlQQwpfNK9I/AAAAAAAAASA/lfBBLAIHFz8/h320/chi-fish20-8-11_007.jpg)](http://lh4.ggpht.com/-vG-B-GecI0c/TlQQwpfNK9I/AAAAAAAAASA/lfBBLAIHFz8/w800/chi-fish20-8-11_007.jpg) Shortly afterwards, Chichester won a penalty. The Fish had conceded penalties in both of their other games this season, and on both occasions keeper Danny Firkins had saved the spot kick. Surely, he couldn’t make it three out of three? He certainly could, a sprawling dive to his right keeping the scores level. That’s the way it stayed for the rest of the half, although Fisher were frustrated by the offside flag on numerous occasions (correctly, as the Fisher management pointed out after the game). Peter Afolayan then had a chance cleared off the line as Fisher dominated but were unable to score.
+
+It was more of the same in the second half, as Fisher brought on livewire winger Nathaniel Bell to add some pace and trickery to their attacking options. Three consecutive corners finally brought a reward, as Jamie Turner’s ball fizzed across the box and cannoned off the knee of big defender Kobi DeGraft-Johnson to put the Fish back in the lead.
+
+[![chi-fish20-8-11_008.jpg](http://lh5.ggpht.com/-GNelB1NP-us/TlQQxCtcUoI/AAAAAAAAASI/AymlrB5nPgw/h320/chi-fish20-8-11_008.jpg)](http://lh5.ggpht.com/-GNelB1NP-us/TlQQxCtcUoI/AAAAAAAAASI/AymlrB5nPgw/w800/chi-fish20-8-11_008.jpg) The Fish missed chances to put the game to bed, Frankie Warren heading wide from a corner. But Chichester always looked dangerous going forward, and Firkins was forced into a flying save with ten minutes to play. Finally Chichester equalised – a scramble in the box saw the ball rebound to Rhys Watling, and he made no mistake to ensure that the tie was sent to a replay at Fisher’s Champion Hill home base.
+
+A hugely enjoyable first appearance in the FA Cup in the supporter-owned era for Fisher, and a cracking cup tie to watch for any neutrals in the crowd. While Chichester won’t be relishing the journey to London on a Monday night, Fisher’s defensive frailties mean that City will travel feeling they still have a shout.
+
+For Fisher fans, being back in the FA Cup after a two year absence reinforces the feeling that we’ve got our club back. Whatever happens on Monday night we’ll be playing in it again soon – and one day, we’ll get that elusive first goal in the competition proper.
+
+[Dan York](http://twitter.com/#!/DanFisherFC) is [Fisher FC](http://fisherfc.co.uk/)‘s Club Secretary, you’ll also find this match report on the website and in the programme for the replay. Photos courtesy of [Jevon Hall.](http://twitter.com/#!/jevron)
